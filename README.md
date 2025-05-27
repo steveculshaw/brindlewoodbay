@@ -1,2 +1,9 @@
-# brindlewoodbay
-Monday Brindlewood Bay
+# Brindlewood Bay
+
+Exploits of the Monday Brindlewood Bay group ...
+
+## Characters
+
+## Sessions
+
+### 
