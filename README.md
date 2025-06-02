@@ -4,63 +4,71 @@ The exploits of the Monday Brindlewood Bay group ...
 
 ## Characters
 
-  * Winnie Marks        (Rick)
-  * Krystal Starlight   (Lynne)
-  * Milcah Grey         (Neil)
-  * Atsidi Redbird      (Steve)
+* Winnie Marks        (Rick)
+* Krystal Starlight   (Lynne)
+* Milcah Grey         (Neil)
+* Atsidi Redbird      (Steve)
 
 ## Sessions
 
 ### 26th May 2025
 
-  The Mystery of "Dad Overboard" ...
+**The Mystery of "Dad Overboard"**
 
-  Late spring, at the weekly book club meeting ...
-  Sheriff Wyman Dalrymple ...
-    - "body on the beach" says ???
-    - Void: purple goo leaking around the fishes eyes
-    - the Krause's; Albert, big shot, business interests in New York
-    - found on the beach this morning, quite dead
-    - their yacht moored 1/4 mile offshore
-    - wife Alison, eldest Sarah, son David, youngest Emilie
-    - they say he just fell off, but suspects foul play
-    - body's in the ice store behind the fish market for a few days
-      - alcohol in blood stream, water in the lungs
+Late spring, at the weekly book club meeting ...
 
-  Krystal - Emilie (younger daughter) came to a concert, asking for autograph
-  On the beach, purple ooze on a few pebbles
-    - sticky, smells of rotted anchovy & sea bird shit
+Sheriff Wyman Dalrymple ...
 
-  Fish market, young mother, several children
-    - Winnie does gooey eyes at kids to distract
-    - body has back of head wound
-      - Clue: that's odd; he has wrist watch, old style mechanical, still going ...
-        - but time is two hours slow, or 10 hours fast
-      - Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
-      - has standard deck pumps on
+* "body on the beach" says ???
+* Void: purple goo leaking around the fishes eyes
+* the Krause's; Albert, big shot, business interests in New York
+* found on the beach this morning, quite dead
+* their yacht moored 1/4 mile offshore
+* wife Alison, eldest Sarah, son David, youngest Emilie
+* they say he just fell off, but suspects foul play
+* body's in the ice store behind the fish market for a few days
+  * alcohol in blood stream, water in the lungs
 
-  Etienne Beauregard turns up, owner of fish market ...
-    - puts on air of french man (but he's from Scranton, Ohio)
-    - Krause's gave him money to buy fish market
-    - envelope from Krause organisation ... riffle through it
-      - they are initiating debt recovery from Etienne
-      - maybe put it back properly
+Krystal - Emilie (younger daughter) came to a concert, asking for autograph
+On the beach, purple ooze on a few pebbles
 
-  Krystal ...
-    - most people don't know much ...
-    - young chap (Charlie Green, KRAUSE-358) in "sailor garb like uniform", putting up his own notice
-      - Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352
-        - dog gone missing, belongs to Mrs Krause
+* sticky, smells of rotted anchovy & sea bird shit
 
-  Milcah goes back to check beach ...
-    - pile of stuff near tide line, red cloth?
-    - blood soaked rug, with a logo on it, but of what?
+Fish market, young mother, several children
 
-  Scene ...
-    - small group hooded figures, on a pebbly beach
-    - greek statue masks glow white
-    - start chanting ... Atsidi sort of recognises it
-    ... and out of the sea something large
+- Winnie does gooey eyes at kids to distract
+- body has back of head wound
+  - Clue: that's odd; he has wrist watch, old style mechanical, still going ...
+    - but time is two hours slow, or 10 hours fast
+  - Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
+  - has standard deck pumps on
+
+Etienne Beauregard turns up, owner of fish market ...
+
+- puts on air of french man (but he's from Scranton, Ohio)
+- Krause's gave him money to buy fish market
+- envelope from Krause organisation ... riffle through it
+  - they are initiating debt recovery from Etienne
+  - maybe put it back properly
+
+Krystal ...
+
+- most people don't know much ...
+- young chap (Charlie Green, KRAUSE-358) in "sailor garb like uniform", putting up his own notice
+  - Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352
+    - dog gone missing, belongs to Mrs Krause
+
+Milcah goes back to check beach ...
+
+- pile of stuff near tide line, red cloth?
+- blood soaked rug, with a logo on it, but of what?
+
+Scene ...
+
+- small group hooded figures, on a pebbly beach
+- greek statue masks glow white
+- start chanting ... Atsidi sort of recognises it
+  ... and out of the sea something large
 
 ### 02/06/2025
 
@@ -116,7 +124,7 @@ The exploits of the Monday Brindlewood Bay group ...
           - a strange "whale" with tentacled legs ...
           - and rows of oily black eyes ... that leaked purple?
     (remember from reading a book in the bookshop)
-  Winnie is riding in the captains chair, twiddling his knobs
+      Winnie is riding in the captains chair, twiddling his knobs
   * and it doesn't go well; touring with couple of crew members
   Krystal trying to calm down Sarah  
   * and blows it; recovers by Crown of the Queen
@@ -160,4 +168,7 @@ The exploits of the Monday Brindlewood Bay group ...
       - the watch is fine; maybe somebody mis-set it?
     (A) do the Sheriff's paperwork ...
       - the notes are a financiers aide memoire
-      -
+
+## 16th June
+
+TODO - check on David Krause's art gallery
