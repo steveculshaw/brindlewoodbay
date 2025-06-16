@@ -177,7 +177,9 @@ Financials investigation by Winnie's ... David has been a big spender on extrava
 
 Tides overnight would have washed body out to see, only early morning tide would bring it onto the beach
 
-Theorize what happened ...
+Winnie takes some buns to make up with Captain Cozy
+
+## Theorize what happened
 
 * killed on the ship ... actually death was by drowning
 * wrapped in the rug
