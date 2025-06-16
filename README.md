@@ -191,6 +191,8 @@ Theorize what happened ...
   * Emilie - younger daughter
   * David - son
 
+---
+
 * Clue: blood soaked rug. The design on it was similar to those on the yacht; it's from Krause Inc. It is the same blood type on rug as Albert Krause
 * Clue: that's odd; he has wrist watch, old style mechanical, still going, albeit 2 hours slow or 10 hours fast
 * Clue: David extravagant purchases for art gallery
@@ -201,6 +203,8 @@ Theorize what happened ...
 * Clue: clandestine affair between Alison and Etienne (Beauregard)
 * Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352. And only Mrs Krause walk the dog
 * Clue: notice to collect a debt against Etienne
+
+---
 
 * Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
 * Void: purple goo leaking around the fishes eyes
