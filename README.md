@@ -189,6 +189,10 @@ On the beach, people with bowed heads in a circle, very similarly dressed with h
 
 Milcah and Krystal do a seance with tarot cards ... *"look in the front bilge"*
 
+Winnie goes to check the bilge ... a large vase broken into three pieces ... the vase was from the "Withdrawing room", and this room is missing its rug
+
+Krystal arranges meet with Emilie at Carmen's (cafe), near Salty Nancy's (tattoo parlour) ...
+
 ## Family tree
 
 * Allison - mother
