@@ -36,38 +36,38 @@ On the beach, purple ooze on a few pebbles
 
 Fish market, young mother, several children
 
-- Winnie does gooey eyes at kids to distract
-- body has back of head wound
-  - Clue: that's odd; he has wrist watch, old style mechanical, still going ...
-    - but time is two hours slow, or 10 hours fast
-  - Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
-  - has standard deck pumps on
+* Winnie does gooey eyes at kids to distract
+* body has back of head wound
+  * Clue: that's odd; he has wrist watch, old style mechanical, still going ...
+    * but time is two hours slow, or 10 hours fast
+  * Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
+  * has standard deck pumps on
 
 Etienne Beauregard turns up, owner of fish market ...
 
-- puts on air of french man (but he's from Scranton, Ohio)
-- Krause's gave him money to buy fish market
-- envelope from Krause organisation ... riffle through it
-  - they are initiating debt recovery from Etienne
-  - maybe put it back properly
+* puts on air of french man (but he's from Scranton, Ohio)
+* Krause's gave him money to buy fish market
+* envelope from Krause organisation ... riffle through it
+  * they are initiating debt recovery from Etienne
+  * maybe put it back properly
 
 Krystal ...
 
-- most people don't know much ...
-- young chap (Charlie Green, KRAUSE-358) in "sailor garb like uniform", putting up his own notice
-  - Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352
-    - dog gone missing, belongs to Mrs Krause
+* most people don't know much ...
+* young chap (Charlie Green, KRAUSE-358) in "sailor garb like uniform", putting up his own notice
+  * Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352
+    * dog gone missing, belongs to Mrs Krause
 
 Milcah goes back to check beach ...
 
-- pile of stuff near tide line, red cloth?
-- blood soaked rug, with a logo on it, but of what?
+* pile of stuff near tide line, red cloth?
+* blood soaked rug, with a logo on it, but of what?
 
 Scene ...
 
-- small group hooded figures, on a pebbly beach
-- greek statue masks glow white
-- start chanting ... Atsidi sort of recognises it
+* small group hooded figures, on a pebbly beach
+* greek statue masks glow white
+* start chanting ... Atsidi sort of recognises it
   ... and out of the sea something large
 
 ### 02/06/2025
@@ -173,15 +173,26 @@ Scene ...
 
 Milcah dreams overnight of three women, who say "Embrace the Void"
 
+Financials investigation by Winnie's ... David has been a big spender on extravagant purchases for his art gallery ... and they're not selling as fast as he's buying them
+
+Tides overnight would have washed body out to see, only early morning tide would bring it onto the beach
+
+Theorize what happened ...
+
+* killed on the ship ... actually death was by drowning
+* wrapped in the rug
+
+## Clues & Void Clues
+
 * Clue: notice to collect a debt against Etienne
 * Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352. And only Mrs Krause walk the dog
+
 * Clue: blood soaked rug. The design on it was similar to those on the yacht; it's from Krause Inc. It is the same blood type on rug as Albert Krause
 * Clue: that's odd; he has wrist watch, old style mechanical, still going, albeit 2 hours slow or 10 hours fast
+
 * Clue: couple of women having an argument on the boat deck ... young woman, Emilie; older woman, Allison
 * Clue: dropped paper; love letter from a Sgt Jack Green to Sarah ... a forbid love affair
 
 * Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
 * Void: purple goo leaking around the fishes eyes
 * Void: crowned rat sat on top of a large pile of cardboard fish
-
-TODO - check on David Krause's art gallery
