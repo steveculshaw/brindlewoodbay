@@ -185,6 +185,8 @@ Winnie takes some buns to make up with Captain Cozy
 
 Emilie confides with (W) that Albert is NOT her real daddy
 
+On the beach, people with bowed heads in a circle, very similarly dressed with hoods
+
 ## Family tree
 
 * Allison - mother
