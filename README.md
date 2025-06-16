@@ -184,14 +184,23 @@ Theorize what happened ...
 
 ## Clues & Void Clues
 
-* Clue: notice to collect a debt against Etienne
-* Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352. And only Mrs Krause walk the dog
+* Family tree ...
+  * Allison - mother
+  * Albert - the dead father
+  * Sarah - elder daughter
+  * Emilie - younger daughter
+  * David - son
 
 * Clue: blood soaked rug. The design on it was similar to those on the yacht; it's from Krause Inc. It is the same blood type on rug as Albert Krause
 * Clue: that's odd; he has wrist watch, old style mechanical, still going, albeit 2 hours slow or 10 hours fast
-
-* Clue: couple of women having an argument on the boat deck ... young woman, Emilie; older woman, Allison
+* Clue: David extravagant purchases for art gallery
+* Clue: Krause family party guest list ... with Etienne crossed out
+* Clue: argument between Sarah & Alison on the boat deck
 * Clue: dropped paper; love letter from a Sgt Jack Green to Sarah ... a forbid love affair
+* Clue: cod fish with a rat stuffed in its mouth
+* Clue: clandestine affair between Alison and Etienne (Beauregard)
+* Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352. And only Mrs Krause walk the dog
+* Clue: notice to collect a debt against Etienne
 
 * Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
 * Void: purple goo leaking around the fishes eyes
