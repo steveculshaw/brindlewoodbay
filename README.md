@@ -9,6 +9,10 @@ The exploits of the Monday Brindlewood Bay group ...
 * Milcah Grey         (Neil)
 * Atsidi Redbird      (Steve)
 
+## Amanda Delacourt novels
+
+* Amanda Delacourt and the Pickled Purser
+
 ## Sessions
 
 ### 26th May 2025
@@ -179,21 +183,22 @@ Tides overnight would have washed body out to see, only early morning tide would
 
 Winnie takes some buns to make up with Captain Cozy
 
+Emilie confides with (W) that Albert is NOT her real daddy
+
+## Family tree
+
+* Allison - mother
+* Albert - the dead father
+* Sarah - elder daughter
+* Emilie - younger daughter
+* David - son
+
 ## Theorize what happened
 
 * killed on the ship ... actually death was by drowning
 * wrapped in the rug
 
 ## Clues & Void Clues
-
-* Family tree ...
-  * Allison - mother
-  * Albert - the dead father
-  * Sarah - elder daughter
-  * Emilie - younger daughter
-  * David - son
-
----
 
 * Clue: blood soaked rug. The design on it was similar to those on the yacht; it's from Krause Inc. It is the same blood type on rug as Albert Krause
 * Clue: that's odd; he has wrist watch, old style mechanical, still going, albeit 2 hours slow or 10 hours fast
@@ -206,7 +211,7 @@ Winnie takes some buns to make up with Captain Cozy
 * Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352. And only Mrs Krause walk the dog
 * Clue: notice to collect a debt against Etienne
 
----
+## Void Clues
 
 * Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
 * Void: purple goo leaking around the fishes eyes
