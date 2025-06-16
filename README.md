@@ -187,6 +187,8 @@ Emilie confides with (W) that Albert is NOT her real daddy
 
 On the beach, people with bowed heads in a circle, very similarly dressed with hoods
 
+Milcah and Krystal do a seance with tarot cards ... *"look in the front bilge"*
+
 ## Family tree
 
 * Allison - mother
@@ -194,11 +196,6 @@ On the beach, people with bowed heads in a circle, very similarly dressed with h
 * Sarah - elder daughter
 * Emilie - younger daughter
 * David - son
-
-## Theorize what happened
-
-* killed on the ship ... actually death was by drowning
-* wrapped in the rug
 
 ## Clues & Void Clues
 
@@ -218,3 +215,8 @@ On the beach, people with bowed heads in a circle, very similarly dressed with h
 * Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
 * Void: purple goo leaking around the fishes eyes
 * Void: crowned rat sat on top of a large pile of cardboard fish
+
+## Theorize what happened
+
+* killed on the ship ... actually death was by drowning
+* wrapped in the rug
