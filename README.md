@@ -13,11 +13,11 @@ The exploits of the Monday Brindlewood Bay group ...
 
 * Amanda Delacourt and the Pickled Purser
 
-## Sessions
+## Mysteries
 
-### 26th May 2025
+### The Mystery of "Dad Overboard"
 
-**The Mystery of "Dad Overboard"**
+#### 26th May 2025
 
 Late spring, at the weekly book club meeting ...
 
@@ -74,7 +74,7 @@ Scene ...
 * start chanting ... Atsidi sort of recognises it
   ... and out of the sea something large
 
-### 02/06/2025
+#### 02/06/2025
 
   The Pixie Anarchists concert rocks it ...
 
@@ -87,7 +87,7 @@ Scene ...
 
   Cozy Activity ...
     Winnie & Atsidi ...
-      - Clue: couple of women having an argument on the boat deck; young woman, Emilie; older woman, Allison
+      - Clue: couple of women having an argument on the boat deck; young woman, Emilie; older woman, Alison
     Milcah & Krystal ...
       - Krystal puts together some of her "special" brownies ...
           - and her son, Vincent, turns up
@@ -108,7 +108,7 @@ Scene ...
 
 * Clue: dropped paper; love letter from a Sgt Jack Green
   * spotted by a crew member;
-  Allison Krause ... the widow, one of the two arguing last night
+  Alison Krause ... the widow, one of the two arguing last night
   * Milcah grabs her hand
   * she wants a reading!
     ... takes him off to her room
@@ -167,13 +167,13 @@ Scene ...
       - shows the body, with the cod laid beside the body
     (W) takes the watch to have it checked out ...
       - spot a lady with a white fluffy dog, leaving the fish store
-      - tail her, Allison marching towards the marina with Pixie on a lead
+      - tail her, Alison marching towards the marina with Pixie on a lead
       Clue: forbid love affair
       - the watch is fine; maybe somebody mis-set it?
     (A) do the Sheriff's paperwork ...
       - the notes are a financiers aide memoire
 
-## 16th June
+#### 16th June
 
 Milcah dreams overnight of three women, who say "Embrace the Void"
 
@@ -183,7 +183,7 @@ Tides overnight would have washed body out to see, only early morning tide would
 
 Winnie takes some buns to make up with Captain Cozy
 
-Emilie confides with (W) that Albert is NOT her real daddy
+Emilie confides with (W) that Albert is NOT her real daddy ... *who is the real father?*
 
 On the beach, people with bowed heads in a circle, very similarly dressed with hoods
 
@@ -193,15 +193,26 @@ Winnie goes to check the bilge ... a large vase broken into three pieces ... the
 
 Krystal arranges meet with Emilie at Carmen's (cafe), near Salty Nancy's (tattoo parlour) ...
 
-## Family tree
+Check the beach ... Alison getting into a down-market motor launch (Beauregard Inc), and head back to the boat
 
-* Allison - mother
+Confront Etienne Beauregard that "this" is what happened ... it was Alison and David that "done it"
+
+Scene ...
+
+* small group hooded figures, around a seated woman
+* wearing white greek statue masks
+* slowly removing all that makes her distinct; lipstick, ear rings, etc.
+  ... and then it all goes black
+
+#### Family tree
+
+* Alison - mother
 * Albert - the dead father
 * Sarah - elder daughter
 * Emilie - younger daughter
 * David - son
 
-## Clues & Void Clues
+#### Clues & Void Clues
 
 * Clue: blood soaked rug. The design on it was similar to those on the yacht; it's from Krause Inc. It is the same blood type on rug as Albert Krause
 * Clue: that's odd; he has wrist watch, old style mechanical, still going, albeit 2 hours slow or 10 hours fast
@@ -214,13 +225,12 @@ Krystal arranges meet with Emilie at Carmen's (cafe), near Salty Nancy's (tattoo
 * Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352. And only Mrs Krause walk the dog
 * Clue: notice to collect a debt against Etienne
 
+## Sessions
+
+### 23rd June
+
 ## Void Clues
 
 * Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
 * Void: purple goo leaking around the fishes eyes
 * Void: crowned rat sat on top of a large pile of cardboard fish
-
-## Theorize what happened
-
-* killed on the ship ... actually death was by drowning
-* wrapped in the rug
