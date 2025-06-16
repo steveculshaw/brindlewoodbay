@@ -171,4 +171,17 @@ Scene ...
 
 ## 16th June
 
+Milcah dreams overnight of three women, who say "Embrace the Void"
+
+* Clue: notice to collect a debt against Etienne
+* Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352. And only Mrs Krause walk the dog
+* Clue: blood soaked rug. The design on it was similar to those on the yacht; it's from Krause Inc. It is the same blood type on rug as Albert Krause
+* Clue: that's odd; he has wrist watch, old style mechanical, still going, albeit 2 hours slow or 10 hours fast
+* Clue: couple of women having an argument on the boat deck ... young woman, Emilie; older woman, Allison
+* Clue: dropped paper; love letter from a Sgt Jack Green to Sarah ... a forbid love affair
+
+* Void: growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
+* Void: purple goo leaking around the fishes eyes
+* Void: crowned rat sat on top of a large pile of cardboard fish
+
 TODO - check on David Krause's art gallery
