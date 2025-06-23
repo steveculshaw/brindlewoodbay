@@ -15,6 +15,37 @@ The exploits of the Monday Brindlewood Bay group ...
 
 ## Mysteries
 
+---
+
+### The Mystery of "????"
+
+#### 23rd June
+
+Krystal takes Emilie under her wing with an offer of support, via music, before she departs back to Boston to be the family heir.
+
+Next on the social calendar is the annual fundraiser for the The Brindlewood Bay Whaling Museum & Education Centre
+
+The museum is usually pretty dark because of limited windows, to protect the exhibits.
+But for tonight's fundraiser in the museum lobby, it has all been glitzed up.
+Two giant inflatable whale jawbones stand outside the entrance way, leading the crowd inside.
+The "Daily Life of the Deep Reaver" interactive display catches Winnie's eye, having her poking all the buttons.
+
+Waiter circulates with glasses of champagne ...
+
+Amongst the guests are ...
+
+* George Pollard, Whaling Museum Director ... known by Atsidi because of her interest in scrimshaw
+* Eudora 'Dorrie' Coffin ... Chair of the Brindlewood Bay Lunch Club
+* Dr Katherine Berko ... Curator
+* Olin Dearborn ... Dean of B.B. Community College
+* Corinne Whately ... A Seeker
+* Cornelius Absalom ... A Philanthropist
+* Prof. Herman Schwartz ... An Academic
+* Edgar Nickerson ... Graduate Student
+* *... and others*
+
+---
+
 ### The Mystery of "Dad Overboard"
 
 #### 26th May 2025
@@ -225,9 +256,7 @@ Scene ...
 * Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352. And only Mrs Krause walk the dog
 * Clue: notice to collect a debt against Etienne
 
-### The Mystery of "????"
-
-#### 23rd June
+---
 
 ## Void Clues
 
