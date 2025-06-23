@@ -93,12 +93,13 @@ Audrey recants about her earlier days with Edgar, how she and him used to walk a
 
 Winnie in for her interview by Detective Cooper<br>
  ... "did you use gloves?" "Yes"<br>
- ... "so what are those?"
+ ... "so what are those?"<br>
  ... another set of gloves in the waste bin
 
-Sketch of a sailor being consumed by a whale ... which had human eyes!
+Sketch of a sailor being consumed by a whale<br>
+ ... which had human eyes!
 
-Try and get a sample of the blood from the scrimshaw gallery<br>
+Atsidi tries and get a sample of the blood from the scrimshaw gallery<br>
  ... oops!!!
  ... **[Crown of the Queen: cut scene]** Atsidi climbing lighthouse for fun
 
@@ -106,9 +107,14 @@ And the case with the missing scrimshaw has a broken side panel<br>
 And in one corner of the room has a little peephole<br>
  ... and Katherine's footsteps approach
 
+The Maven's are finally released by the police, and head to Edgar's to check for his thesis manuscript.
+We break in ... with great panache!
+Checking the place out and we find<br>
+ ... 
+
 ---
 
-### The Mystery of "Dad Overboard" ... <https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-dad-overboard.html>
+### <a target="_blank" href="The Mystery of Dad Overboard">https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-dad-overboard.html</a>
 
 ---
 
