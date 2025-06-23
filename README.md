@@ -100,7 +100,7 @@ Sketch of a sailor being consumed by a whale<br>
  ... which had human eyes!
 
 Atsidi tries and get a sample of the blood from the scrimshaw gallery<br>
- ... oops!!!
+ ... oops, bungled that!<br>
  ... **[Crown of the Queen: cut scene]** Atsidi climbing lighthouse for fun
 
 And the case with the missing scrimshaw has a broken side panel<br>
@@ -109,12 +109,13 @@ And in one corner of the room has a little peephole<br>
 
 The Maven's are finally released by the police, and head to Edgar's to check for his thesis manuscript.
 We break in ... with great panache!
-Checking the place out and we find<br>
- ... 
+Checking the place out and we find <br>
+ ... Edgar's thesis; with some corrections & modifications in different handwriting<br>
+ ... an encyclopedia of "Tattoo's and Their Meaning"; with a couple of dog-eared pages
 
 ---
 
-### <a target="_blank" href="The Mystery of Dad Overboard">https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-dad-overboard.html</a>
+### The Mystery of Dad Overboard <a target="_blank" href="The Mystery of Dad Overboard">https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-dad-overboard.html</a>
 
 ---
 
