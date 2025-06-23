@@ -23,9 +23,9 @@ Krystal takes Emilie under her wing with an offer of support, via music, before 
 
 Next on the social calendar is the annual fundraiser for the The Brindlewood Bay Whaling Museum & Education Centre
 
-The museum is usually pretty dark because of limited windows, to protect the exhibits.
-But for tonight's fundraiser in the museum lobby, it has all been glitzed up.
-Two giant inflatable whale jawbones stand outside the entrance way, leading the crowd inside.
+The museum is usually pretty dark because of limited windows, to protect the exhibits.<br>
+But for tonight's fundraiser in the museum lobby, it has all been glitzed up.<br>
+Two giant inflatable whale jawbones stand outside the entrance way, leading the crowd inside.<br>
 The "Daily Life of the Deep Reaver" interactive display catches Winnie's eye, having her poking all the buttons.
 
 Waiter circulates with glasses of champagne ...
@@ -53,25 +53,32 @@ Amongst the guests are ...
 
 Edgar is lying in the room, in the middle of a pool of blood ... <br>**likely due to the harpoon through his side!**
 
-Winnie's medical knowledge comes to the fore ... yeap, he's dead.
-Wedged into the wound is a piece of scrimshaw ... but getting it to examine, would disturb the body.
+Winnie's medical knowledge comes to the fore<br>
+ ... yeap, he's dead.<br>
+Wedged into the wound is a piece of scrimshaw<br>
+ ... but getting it to examine, would disturb the body.<br>
 George comes in and complains that the blood is soaking into the reclaimed flood planks from the Deep Reaver.
 
-Sam Cooper, Detective Deputy comes in ... and Winnie schmoozes her with our knowledge and contacts with the sheriff.
+Sam Cooper, Detective Deputy comes in<br>
+ ... and Winnie schmoozes her with our knowledge and contacts with the sheriff.
 
-Krish is trying to leave ... call Moonhowl to block him.
-Interesting, he mentions knowing Edgar
+Krish is trying to leave<br>
+ ... call Moonhowl to block him.
+ ... interesting, he mentions knowing Edgar!
 
 Meanwhile Krystal doses Krish up with one of her *"cherry ok"* teas (*copyright Kevin Hearne*)
 
-Krystal chats to Krish ... him and Edgar has a *"thing"*, but they recently broke up.<br>
+Krystal chats to Krish<br>
+ ... him and Edgar has a *"thing"*, but they recently broke up.<br>
 Oh, Prof. Schwartz has some drops of blood on his left shoe.<br>
-He claims it must have got there when he approached the body.<br>
-Police take the shoe away as evidence.
 
-Now that's interesting ... <br>
-**Clue:** George and Cornelius are deep in conversation about *"something"*.<br>
-And they quickly separate when Winnie approaches George.
+Atsidi quizzes him about the blood<br>
+ ... he claims it must have got there when he approached the body.<br>
+ ... police take the shoe away as evidence.
+
+Now that's interesting<br>
+ ... **Clue:** George and Cornelius are deep in conversation about *"something"*.<br>
+ ... And they quickly separate when Winnie approaches George.
 
 Winnie challenges George about the missing details on the great tentacle event<br>
  ... seems that he could make them available.<br>
@@ -81,7 +88,8 @@ She shows the photos of the scrimshaw, and he points out the missing item slot<b
 
 Winnie quizzes Dr. Berko about Edgar; she'd helped him with his thesis. <br>
 Doesn't know if he has an assigned tutor. Gets pointed at the cousin; Audrey.<br>
-Audrey recants how she and him used to walk along the beach ... hearing the whale songs, *that no-one else could hear*
+Audrey recants about her earlier days with Edgar, how she and him used to walk along the beach<br>
+ ... hearing the whale songs, *that no-one else could hear*
 
 ---
 
