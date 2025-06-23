@@ -64,7 +64,13 @@ Interesting, he mentions knowing Edgar
 Meanwhile Krystal doses Krish up with one of her teas (*copyright Kevin Hearne*)
 
 Krystal chats to Krish ... him and Edgar has a "thing", but they recently broke up.
-Oh, Schwartz has some drops of blood on his shoe.
+Oh, Prof. Schwartz has some drops of blood on his left shoe.
+He claims it must have got there when he approached the body.
+Police take the shoe away as evidence.
+
+Now that's interesting ... **Clue:** George and Cornelius are deep in conversation about *"something"*. And they quickly separate when Winnie approaches George.
+
+Winnie challenges George about the missing details on the great tentacle event ... seems that he could make them available.
 
 ---
 
