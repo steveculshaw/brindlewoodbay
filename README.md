@@ -120,6 +120,8 @@ Next morning at the Maven cave, *aka the Candlelight Booksellers*, Atsidi try a 
  ... set-up my dream catcher, burn the tissue with Edgar's blood on it, blow the smoke through the catcher ... *and speak to his spirit*<br>
  ... **Clue:**" Edgar says; *"they were stealing the scrimshaw"*
 
+*Atsidi takes Tom Hanson maven move:: <br>You can easily pass for someone much younger. If you’re in a situation or environment where being younger is a benefit, your rolls are made with advantage*
+
 ### This Mystery Clues
 
 **Clue:** George and Cornelius are deep in conversation about *"something"*<br>
