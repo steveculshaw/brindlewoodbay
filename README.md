@@ -225,9 +225,9 @@ Scene ...
 * Clue: pedigree white Samoyed, answers to Pixie, reward for recovery, contact KRAUSE-352. And only Mrs Krause walk the dog
 * Clue: notice to collect a debt against Etienne
 
-## Sessions
+### The Mystery of "????"
 
-### 23rd June
+#### 23rd June
 
 ## Void Clues
 
