@@ -42,15 +42,16 @@ Amongst the guests are ...
 * Prof. Herman Schwartz ... an Academic
   * of maritime history; complains of the use of reproduction, rather than the originals
 * Edgar Nickerson ... a Graduate Student
+  * writing up his thesis
 * Angela Hardiman ... High School Principal
 * Krish Chadha ... a Student
 * Audrey Nickerson ... Edgar's Cousin
 * Janet Flock ... owner of Candlelight Booksellers
 * *... and many others*
 
-**There's a scream** ... Katherine Berko emerges from the scrimshaw section... **"my god, he's dead"**
+**There's a scream** ... <br>Katherine Berko emerges from the scrimshaw section ... <br>**"my god, he's dead"**
 
-Edgar is lying in the room, in the middle of a pool of blood ... **likely due to the harpoon through his side!**
+Edgar is lying in the room, in the middle of a pool of blood ... <br>**likely due to the harpoon through his side!**
 
 Winnie's medical knowledge comes to the fore ... yeap, he's dead.
 Wedged into the wound is a piece of scrimshaw ... but getting it to examine, would disturb the body.
@@ -61,16 +62,26 @@ Sam Cooper, Detective Deputy comes in ... and Winnie schmoozes her with our know
 Krish is trying to leave ... call Moonhowl to block him.
 Interesting, he mentions knowing Edgar
 
-Meanwhile Krystal doses Krish up with one of her teas (*copyright Kevin Hearne*)
+Meanwhile Krystal doses Krish up with one of her *"cherry ok"* teas (*copyright Kevin Hearne*)
 
-Krystal chats to Krish ... him and Edgar has a "thing", but they recently broke up.
-Oh, Prof. Schwartz has some drops of blood on his left shoe.
-He claims it must have got there when he approached the body.
+Krystal chats to Krish ... him and Edgar has a *"thing"*, but they recently broke up.<br>
+Oh, Prof. Schwartz has some drops of blood on his left shoe.<br>
+He claims it must have got there when he approached the body.<br>
 Police take the shoe away as evidence.
 
-Now that's interesting ... **Clue:** George and Cornelius are deep in conversation about *"something"*. And they quickly separate when Winnie approaches George.
+Now that's interesting ... <br>
+**Clue:** George and Cornelius are deep in conversation about *"something"*.<br>
+And they quickly separate when Winnie approaches George.
 
-Winnie challenges George about the missing details on the great tentacle event ... seems that he could make them available.
+Winnie challenges George about the missing details on the great tentacle event<br>
+ ... seems that he could make them available.<br>
+She shows the photos of the scrimshaw, and he points out the missing item slot<br>
+ ... but he can't remember quite what the item was<br>
+ ... maybe Katherine could help.
+
+Winnie quizzes Dr. Berko about Edgar; she'd helped him with his thesis. <br>
+Doesn't know if he has an assigned tutor. Gets pointed at the cousin; Audrey.<br>
+Audrey recants how she and him used to walk along the beach ... hearing the whale songs, *that no-one else could hear*
 
 ---
 
