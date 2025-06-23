@@ -15,7 +15,7 @@ The exploits of the Monday Brindlewood Bay group ...
 
 ## Mysteries
 
-### The Mystery of "????"
+### The Mystery of the Whaling Museum Murder
 
 #### 23rd June
 
