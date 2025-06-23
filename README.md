@@ -110,12 +110,14 @@ And in one corner of the room has a little peephole<br>
 The Maven's are finally released by the police, and head to Edgar's to check for his thesis manuscript.
 We break in ... with great panache!
 Checking the place out and we find <br>
- ... Edgar's thesis; with some corrections & modifications in different handwriting<br>
- ... an encyclopedia of "Tattoo's and Their Meaning"; with a couple of dog-eared pages
+ ... Edgar's thesis; with some corrections & modifications in different handwriting; also some marking in green pencil, saying **Krish is jealous**<br>
+ ... an encyclopedia of "Tattoo's, and their Meaning"; with a couple of dog-eared pages; referring to ornate seaman's tattoo's, but nothing obvious relating to the (current) murder<br>
+
+Next morning at the Maven cave, aka the Brindlewood Bay bookshop ...
 
 ---
 
-### The Mystery of Dad Overboard <a target="_blank" href="The Mystery of Dad Overboard">https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-dad-overboard.html</a>
+### <a target="_blank" href="The Mystery of Dad Overboard">The Mystery of Dad Overboard</a>
 
 ---
 
