@@ -117,7 +117,7 @@ Next morning at the Maven cave, aka the Brindlewood Bay bookshop ...
 
 ---
 
-### <a target="_blank" href="The Mystery of Dad Overboard">The Mystery of Dad Overboard</a>
+### <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-dad-overboard.html">The Mystery of Dad Overboard</a>
 
 ---
 
