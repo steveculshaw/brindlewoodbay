@@ -27,6 +27,9 @@ Winnie goes to check the museum for where the harpoon came from; sadly it's clos
 
 Atsidi heads to the sheriffs office for any updates, and quizzes the deputy about status; the scrimshaw is piece of slightly curved bone; picture of a young man with a straw hat, smart jacket, baggy trousers, no shoes, and a grin on his face.
 Checking the report, there is a note (likely Sam Cooper) ... "Check out and follow up draft email on Katherine Berko computer".
+Try and disable the museum alarm while Krystal 146's (*breaking & entry*) the fire door ... get caught by the Sheriff
+
+*Sheriff Wyman is starting to get suspicious about us and always being at crime scenes!!!*
 
 Krystal heads off to search around the museum; there is a fight exit ... sadly likely to be alarmed!
 
