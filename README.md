@@ -45,19 +45,20 @@ And the peephole ...
 * from the scrimshaw room, you can see who's coming down the corridor
 
 Go to the college to check ... <br>
-
-* Krish's subject was music
-* Schwartz was NOT Edgar tutor ... it is Dr Tara Banerjee. She was at the event, and left early ... Edgar was still alive
-* and their writing does NOT match the thesis
+... Krish's subject was music<br>
+... Schwartz was NOT Edgar tutor ... it is Dr Tara Banerjee. She was at the event, and left early ... Edgar was still alive<br>
+... and their writing does NOT match the thesis
 
 Krystal broaches a possible romance between Edgar and Dr. Banerjee ... NO<br>
-... and gets a vey bad reaction!
+... and gets a vey bad reaction!<br>
+... so bad she leaves, jumps into her car and drives off
 
 Winnie meanwhile checks through the USB stick ... <br>
-Nothing on any scrimshaw sales, but it does show the museum is a heathy financial position, getting donations from BB Community College, along with several towns folks. And weirdly BB Lunch Club!<br>
-The scrimshaw repo's are of specific known ones.
+... Nothing on any scrimshaw sales<br>
+... but it does show the museum is a heathy financial position, getting donations from BB. Community College, along with several towns folks. And weirdly BB. Lunch Club!<br>
+... The scrimshaw repo's are of specific known ones.
 
-Next the tattoo's ... visit 'Salty' Nancy's Nikolaidas (*from Belfast*) tattoo shop.<br>
+Next check the tattoo's ... visit 'Salty' Nancy's Nikolaidas (*from Belfast*) tattoo shop.<br>
 Winnie asks about the tattoo's on the two worn pages ... and chickens out of a "M" on each of our arms.
 
 #### 23rd June
@@ -80,7 +81,7 @@ Amongst the guests are ...
 * George Pollard ... *Whaling Museum Director* ... known by Atsidi because of her interest in scrimshaw
 * Eudora 'Dorrie' Coffin ... *Chair of the Brindlewood Bay Lunch Club*
 * Dr Katherine Berko ... *Curator of the museum*
-* Olin Dearborn ... *Dean of B.B. Community College*
+* Olin Dearborn ... *Dean of BB. Community College*
   * Olin's background is in public relations, so interested in Krystal's public fame.
 * Corinne Whately ... *a Seeker*
 * Cornelius Absalom ... *a Philanthropist*
@@ -174,11 +175,19 @@ Next morning at the Maven cave, *aka the Candlelight Booksellers*, Atsidi try a 
 **Clue:** A peephole drilled in a quiet corner of the scrimshaw gallery, with a view onto the main gallery <br>
 **Clue:** Disposable gloves in the office trash can, slightly stretched<br>
 **Clue:** Encyclopedia of tattoo's with two dog-eared pages<br>
-**Clue:** "They were stealing the scrimshaw" from Edgar (spirit)<br>
-**Clue:** Katherine's unsent draft email; to BB Community College, "Staff & students welcome to inspect, but loaning is out of the question"<br>
-**Clue:** For each entry in the index, there is a link for object value, which lead to a hidden file ... downloaded to Winnie's USB bobble drive<br>
+**Clue:** Edgar (*spirit*) says ... *"They were stealing the scrimshaw"*<br>
+**Clue:** Katherine's unsent draft email; to BB. Community College, "Staff & students welcome to inspect, but loaning is out of the question"<br>
+**Clue:** Financial reports hidden from prying eyes ... for each entry in the index, there is a link for object value, which lead to a hidden file ... downloaded to Winnie's USB bobble drive<br>
 
 **Void:** Sketch of sailor being consumed by a human-eyed whale
+
+edgar spirit ... as cult taking scrimshaw
+[prof schwartz member of cult
+george & corn conversation ...
+edgar broken case ... to take scrimshaw
+a peephole ... schwartz used to spy edgar
+droplets only because of harpoon
+scrimshaw in wound ... as defensive implement
 
 ---
 
