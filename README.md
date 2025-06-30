@@ -20,6 +20,15 @@ The exploits of the Monday Brindlewood Bay group ...
 
 #### 30th June
 
+*Krystal meets with her informant, dodgy Alf: he informs her that ... the sketch relates directly to the scrimshaw*
+*And the spirit of Milcah still surrounds us, pointing to a news archive item ... New Years Eve 2011, convergence point of dooms soothsayers for a end of world 2012 party. Most left, but some seem to have remained. Including one whose bushy beard is strangely reminiscent*
+
+Winnie goes to check the museum for where the harpoon came from; sadly it's closed. Seems it was in the main gallery close to the scrimshaw section.
+
+Atsidi heads to the sheriffs office for any updates, and quizzes the deputy about status; the scrimshaw is piece of slightly curved bone; picture of a young man with a straw hat, smart jacket, baggy trousers, no shoes, and a grin on his face.
+Checking the report, there is a note (likely Sam Cooper) ... "Check out and follow up draft email on Katherine Berko computer".
+
+Krystal heads off to search around the museum; there is a fight exit ... sadly likely to be alarmed!
 
 #### 23rd June
 
@@ -145,9 +154,11 @@ Next morning at the Maven cave, *aka the Candlelight Booksellers*, Atsidi try a 
 
 ---
 
-## Void Clues
+## All Void Clues so far
 
 * Void: [MoDO] Growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
 * Void: [MoDO] Purple goo leaking around the fishes eyes
 * Void: [MoDO] Crowned rat sat on top of a large pile of cardboard fish
 * Void: [MotWMM] Picture of the human-eyed whale
+* Void: [MotWMM] Sketch of a sailor being consumed by the human-eyed whale
+  * [FM] The sketch relates directly to the scrimshaw
