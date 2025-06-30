@@ -18,49 +18,6 @@ The exploits of the Monday Brindlewood Bay group ...
 
 ### The Mystery of the Whaling Museum Murder [level 7]
 
-#### 30th June
-
-*Krystal meets with her informant, dodgy Alf: he informs her that ... the sketch relates directly to the scrimshaw*
-*And the spirit of Milcah still surrounds us, pointing to a news archive item ... New Years Eve 2011, convergence point of dooms soothsayers for a end of world 2012 party. Most left, but some seem to have remained. Including one whose bushy beard is strangely reminiscent*
-
-Winnie goes to check the museum for where the harpoon came from; sadly it's closed. Seems it was in the main gallery close to the scrimshaw section.
-
-Atsidi heads to the sheriffs office for any updates, and quizzes the deputy about status; the scrimshaw is piece of slightly curved bone; picture of a young man with a straw hat, smart jacket, baggy trousers, no shoes, and a grin on his face.
-Checking the report, there is a note (likely Sam Cooper) ... "Check out and follow up draft email on Katherine Berko computer".
-Partially disable the museum alarm while Krystal 146's (*breaking & entry*) the fire door ... *and gets caught by the Sheriff*
-
-*Sheriff Wyman is starting to get suspicious about us and always being at crime scenes!!!*
-
-Krystal heads off to search around the museum; there is a fire exit ... sadly likely to be alarmed!
-And is joined by Winnie.<br>
-Checking the computer, and it's not locked ... <br>
-**Clue:** Katherine's unsent draft email; "Staff & students welcome to inspect, but loaning is out of the question"
-Unfortunately the museum index is password protected, but Krystal uses Katherine's Star Trek interest to break in.
-Winnie takes over checking the details. The harpoon is associated with a harpoon gun on loan to Boston Marine Museum.<br>
-**Clue:** Plus for each entry, there is a link for object value, which lead to a hidden file ... downloaded to Winnie's USB bobble drive.
-
-And the peephole ...
-
-* from the corridor, you can see the case where the scrimshaw was taken from
-* from the scrimshaw room, you can see who's coming down the corridor
-
-Go to the college to check ... <br>
-... Krish's subject was music<br>
-... Schwartz was NOT Edgar tutor ... it is Dr Tara Banerjee. She was at the event, and left early ... Edgar was still alive<br>
-... and their writing does NOT match the thesis
-
-Krystal broaches a possible romance between Edgar and Dr. Banerjee ... NO<br>
-... and gets a vey bad reaction!<br>
-... so bad she leaves, jumps into her car and drives off
-
-Winnie meanwhile checks through the USB stick ... <br>
-... Nothing on any scrimshaw sales<br>
-... but it does show the museum is a heathy financial position, getting donations from BB. Community College, along with several towns folks. And weirdly BB. Lunch Club!<br>
-... The scrimshaw repo's are of specific known ones.
-
-Next check the tattoo's ... visit 'Salty' Nancy's Nikolaidas (*from Belfast*) tattoo shop.<br>
-Winnie asks about the tattoo's on the two worn pages ... and chickens out of a "M" on each of our arms.
-
 #### 23rd June
 
 *Krystal takes Fox Mulder maven move :: <br>Once per mystery, after at least one Void Clue has been encountered, you can have a secret meeting with this informant, who is always shrouded in darkness or otherwise disguised*
@@ -165,6 +122,63 @@ Next morning at the Maven cave, *aka the Candlelight Booksellers*, Atsidi try a 
 
 *Atsidi takes Tom Hanson maven move:: <br>You can easily pass for someone much younger. If you’re in a situation or environment where being younger is a benefit, your rolls are made with advantage*
 
+#### 30th June
+
+*Krystal meets with her informant, dodgy Alf: he informs her that ... the sketch relates directly to the scrimshaw*
+*And the spirit of Milcah still surrounds us, pointing to a news archive item ... New Years Eve 2011, convergence point of dooms soothsayers for a end of world 2012 party. Most left, but some seem to have remained. Including one whose bushy beard is strangely reminiscent*
+
+Winnie goes to check the museum for where the harpoon came from; sadly it's closed. Seems it was in the main gallery close to the scrimshaw section.
+
+Atsidi heads to the sheriffs office for any updates, and quizzes the deputy about status; the scrimshaw is piece of slightly curved bone; picture of a young man with a straw hat, smart jacket, baggy trousers, no shoes, and a grin on his face.
+Checking the report, there is a note (likely Sam Cooper) ... "Check out and follow up draft email on Katherine Berko computer".
+Partially disable the museum alarm while Krystal 146's (*breaking & entry*) the fire door ... *and gets caught by the Sheriff*
+
+*Sheriff Wyman is starting to get suspicious about us and always being at crime scenes!!!*
+
+Krystal heads off to search around the museum; there is a fire exit ... sadly likely to be alarmed!
+And is joined by Winnie.<br>
+Checking the computer, and it's not locked ... <br>
+**Clue:** Katherine's unsent draft email; "Staff & students welcome to inspect, but loaning is out of the question"
+Unfortunately the museum index is password protected, but Krystal uses Katherine's Star Trek interest to break in.
+Winnie takes over checking the details. The harpoon is associated with a harpoon gun on loan to Boston Marine Museum.<br>
+**Clue:** Plus for each entry, there is a link for object value, which lead to a hidden file ... downloaded to Winnie's USB bobble drive.
+
+And the peephole ...
+
+* from the corridor, you can see the case where the scrimshaw was taken from
+* from the scrimshaw room, you can see who's coming down the corridor
+
+Go to the college to check ... <br>
+... Krish's subject was music<br>
+... Schwartz was NOT Edgar tutor ... it is Dr Tara Banerjee. She was at the event, and left early ... Edgar was still alive<br>
+... and their writing does NOT match the thesis
+
+Krystal broaches a possible romance between Edgar and Dr. Banerjee ... NO<br>
+... and gets a vey bad reaction!<br>
+... so bad she leaves, jumps into her car and drives off
+
+Winnie meanwhile checks through the USB stick ... <br>
+... Nothing on any scrimshaw sales<br>
+... but it does show the museum is a heathy financial position, getting donations from BB. Community College, along with several towns folks. And weirdly BB. Lunch Club!<br>
+... The scrimshaw repo's are of specific known ones.
+
+Next check the tattoo's ... visit 'Salty' Nancy's Nikolaidas (*from Belfast*) tattoo shop.<br>
+Winnie asks about the tattoo's on the two worn pages ... and chickens out of a "M" on each of our arms.
+
+Confront Professor Schwartz that "this" is what happened ... it was him that killed Edgar<br>
+Edgar had discovered the theft of the scrimshaw by the cult.<br>
+Schwartz killed him in the museum with the harpoon
+
+He was acting on the instructions of the **"Midwife's of the Fragrant Void"**
+
+Curtsey of Milcah another news article ...
+
+In the summer of 1893 hall dr murdered 13 women & children
+Saying they were promised to them below
+Despite the evidence, he was found "Not guilty" and released.
+He built a shack on the and lived out his life
+during that time, rarely seen after that, but glimpsed doing strange rituals
+
 ### This Mystery Clues
 
 **Clue:** George and Cornelius are deep in conversation about *"something"*<br>
@@ -180,14 +194,6 @@ Next morning at the Maven cave, *aka the Candlelight Booksellers*, Atsidi try a 
 **Clue:** Financial reports hidden from prying eyes ... for each entry in the index, there is a link for object value, which lead to a hidden file ... downloaded to Winnie's USB bobble drive<br>
 
 **Void:** Sketch of sailor being consumed by a human-eyed whale
-
-edgar spirit ... as cult taking scrimshaw
-[prof schwartz member of cult
-george & corn conversation ...
-edgar broken case ... to take scrimshaw
-a peephole ... schwartz used to spy edgar
-droplets only because of harpoon
-scrimshaw in wound ... as defensive implement
 
 ---
 
