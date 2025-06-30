@@ -44,6 +44,12 @@ And the peephole ...
 * from the corridor, you can see the case where the scrimshaw was taken from
 * from the scrimshaw room, you can see who's coming down the corridor
 
+Go to the college to check ... <br>
+
+* Krish's subject was music
+* Schwartz was NOT Edgar tutor ... it is Dr Tara Banerjee. She was at the event, and left early ... Edgar was still alive
+* and their writing does NOT match the thesis
+
 #### 23rd June
 
 *Krystal takes Fox Mulder maven move :: <br>Once per mystery, after at least one Void Clue has been encountered, you can have a secret meeting with this informant, who is always shrouded in darkness or otherwise disguised*
@@ -131,14 +137,14 @@ Atsidi tries and get a sample of the blood from the scrimshaw gallery ...<br>
  ... oops, bungled that!<br>
  ... **[Crown of the Queen: cut scene]** Atsidi climbing lighthouse for fun
 
-And the case with the missing scrimshaw has a broken side panel<br>
+And the case with the missing scrimshaw has a broken glass side panel<br>
 And in one corner of the room has a little peephole<br>
  ... *and Katherine's footsteps approach ...*
 
 The Maven's are finally released by the police, and head to Edgar's to check for his thesis manuscript.
 We break in ... with great panache!
 Checking the place out and we find ... <br>
- ... Edgar's thesis; with some corrections & modifications in different handwriting; also some marking in green pencil, saying **Krish is jealous**<br>
+ ... Edgar's thesis; with some corrections & modifications in different handwriting (*Dr. Banerjee*); also some marking in green pencil, saying **Krish is jealous** in Edgar's hand<br>
  ... an encyclopedia of "Tattoo's, and their Meaning"; with a couple of dog-eared pages; referring to ornate seaman's tattoo's, but nothing obvious relating to the *(current)* murder<br>
 
 Next morning at the Maven cave, *aka the Candlelight Booksellers*, Atsidi try a seance like her Navajo grandmother showed here, fortified Krystal's "Green Crack" tea for a blast of exhilarating energy ...<br>
@@ -154,12 +160,13 @@ Next morning at the Maven cave, *aka the Candlelight Booksellers*, Atsidi try a 
 **Clue:** Broken display case with an empty stand<br>
 **Clue:** Bloody scrimshaw wedged in the wound<br>
 **Clue:** Droplets of blood on the Schwartz's shoe<br>
-**Clue:** Edgar's thesis<br>
+**Clue:** Edgar's thesis, with corrections and "Krish is jealous"<br>
 **Clue:** A peephole drilled in a quiet corner of the scrimshaw gallery, with a view onto the main gallery <br>
 **Clue:** Disposable gloves in the office trash can, slightly stretched<br>
 **Clue:** Encyclopedia of tattoo's with two dog-eared pages<br>
 **Clue:** "They were stealing the scrimshaw" from Edgar (spirit)<br>
 **Clue:** Katherine's unsent draft email; to BB Community College, "Staff & students welcome to inspect, but loaning is out of the question"<br>
+**Clue:** For each entry in the index, there is a link for object value, which lead to a hidden file ... downloaded to Winnie's USB bobble drive<br>
 
 **Void:** Sketch of sailor being consumed by a human-eyed whale
 
