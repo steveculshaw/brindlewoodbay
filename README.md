@@ -33,12 +33,16 @@ Partially disable the museum alarm while Krystal 146's (*breaking & entry*) the 
 
 Krystal heads off to search around the museum; there is a fire exit ... sadly likely to be alarmed!
 And is joined by Winnie.<br>
-Checking the computer, and it's not locked ... **Clue:** Katherine's unsent draft email; "Staff & students welcome to inspect, but loaning is out of the question"
+Checking the computer, and it's not locked ... <br>
+**Clue:** Katherine's unsent draft email; "Staff & students welcome to inspect, but loaning is out of the question"
 Unfortunately the museum index is password protected, but Krystal uses Katherine's Star Trek interest to break in.
 Winnie takes over checking the details. The harpoon is associated with a harpoon gun on loan to Boston Marine Museum.<br>
-**Clue:** Plus for each entry, there is a link for object value, which lead to a hidden file.
+**Clue:** Plus for each entry, there is a link for object value, which lead to a hidden file ... downloaded to Winnie's USB bobble drive.
 
-And the peephole ... is
+And the peephole ...
+
+* from the corridor, you can see the case where the scrimshaw was taken from
+* from the scrimshaw room, you can see who's coming down the corridor
 
 #### 23rd June
 
