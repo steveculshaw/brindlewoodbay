@@ -53,7 +53,12 @@ Go to the college to check ... <br>
 Krystal broaches a possible romance between Edgar and Dr. Banerjee ... NO<br>
 ... and gets a vey bad reaction!
 
-Winnie meanwhile checks through the USB stick ... nothing on any scrimshaw sales, but it does show the museum is a heathy financial position, getting donations from BB Community College, along with several towns folks. And weirdly BB Lunch Club!
+Winnie meanwhile checks through the USB stick ... <br>
+Nothing on any scrimshaw sales, but it does show the museum is a heathy financial position, getting donations from BB Community College, along with several towns folks. And weirdly BB Lunch Club!<br>
+The scrimshaw repo's are of specific known ones.
+
+Next the tattoo's ... visit 'Salty' Nancy's Nikolaidas (*from Belfast*) tattoo shop.<br>
+Winnie asks about the tattoo's on the two worn pages ... and chickens out of a "M" on each of our arms.
 
 #### 23rd June
 
