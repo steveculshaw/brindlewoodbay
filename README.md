@@ -50,6 +50,11 @@ Go to the college to check ... <br>
 * Schwartz was NOT Edgar tutor ... it is Dr Tara Banerjee. She was at the event, and left early ... Edgar was still alive
 * and their writing does NOT match the thesis
 
+Krystal broaches a possible romance between Edgar and Dr. Banerjee ... NO<br>
+... and gets a vey bad reaction!
+
+Winnie meanwhile checks through the USB stick ... nothing on any scrimshaw sales, but it does show the museum is a heathy financial position, getting donations from BB Community College, along with several towns folks. And weirdly BB Lunch Club!
+
 #### 23rd June
 
 *Krystal takes Fox Mulder maven move :: <br>Once per mystery, after at least one Void Clue has been encountered, you can have a secret meeting with this informant, who is always shrouded in darkness or otherwise disguised*
