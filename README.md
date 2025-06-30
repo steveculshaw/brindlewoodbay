@@ -4,10 +4,10 @@ The exploits of the Monday Brindlewood Bay group ...
 
 ## Characters
 
-* Winnie Marks        (Rick)
-* Krystal Starlight   (Lynne)
-* Milcah Grey         (Neil)
-* Atsidi Redbird      (Steve)
+* Winnie Marks        *(Rick)*
+* Krystal Starlight   *(Lynne)*
+* Milcah Grey         *(Neil)*
+* Atsidi Redbird      *(Steve)*
 
 ## Amanda Delacourt novels
 
@@ -27,11 +27,18 @@ Winnie goes to check the museum for where the harpoon came from; sadly it's clos
 
 Atsidi heads to the sheriffs office for any updates, and quizzes the deputy about status; the scrimshaw is piece of slightly curved bone; picture of a young man with a straw hat, smart jacket, baggy trousers, no shoes, and a grin on his face.
 Checking the report, there is a note (likely Sam Cooper) ... "Check out and follow up draft email on Katherine Berko computer".
-Try and disable the museum alarm while Krystal 146's (*breaking & entry*) the fire door ... get caught by the Sheriff
+Partially disable the museum alarm while Krystal 146's (*breaking & entry*) the fire door ... *and gets caught by the Sheriff*
 
 *Sheriff Wyman is starting to get suspicious about us and always being at crime scenes!!!*
 
-Krystal heads off to search around the museum; there is a fight exit ... sadly likely to be alarmed!
+Krystal heads off to search around the museum; there is a fire exit ... sadly likely to be alarmed!
+And is joined by Winnie.<br>
+Checking the computer, and it's not locked ... **Clue:** Katherine's unsent draft email; "Staff & students welcome to inspect, but loaning is out of the question"
+Unfortunately the museum index is password protected, but Krystal uses Katherine's Star Trek interest to break in.
+Winnie takes over checking the details. The harpoon is associated with a harpoon gun on loan to Boston Marine Museum.<br>
+**Clue:** Plus for each entry, there is a link for object value, which lead to a hidden file.
+
+And the peephole ... is
 
 #### 23rd June
 
@@ -122,7 +129,7 @@ Atsidi tries and get a sample of the blood from the scrimshaw gallery ...<br>
 
 And the case with the missing scrimshaw has a broken side panel<br>
 And in one corner of the room has a little peephole<br>
- ... and Katherine's footsteps approach
+ ... *and Katherine's footsteps approach ...*
 
 The Maven's are finally released by the police, and head to Edgar's to check for his thesis manuscript.
 We break in ... with great panache!
@@ -148,6 +155,7 @@ Next morning at the Maven cave, *aka the Candlelight Booksellers*, Atsidi try a 
 **Clue:** Disposable gloves in the office trash can, slightly stretched<br>
 **Clue:** Encyclopedia of tattoo's with two dog-eared pages<br>
 **Clue:** "They were stealing the scrimshaw" from Edgar (spirit)<br>
+**Clue:** Katherine's unsent draft email; to BB Community College, "Staff & students welcome to inspect, but loaning is out of the question"<br>
 
 **Void:** Sketch of sailor being consumed by a human-eyed whale
 
