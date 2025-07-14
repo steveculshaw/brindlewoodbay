@@ -85,7 +85,7 @@ Then off to the side undergrowth, she's found something bizarre<br>
 
 Meanwhile back at the pumping station ... <br>
 
-Winnie investigates ...*what happens in the pumping station, stays in the pumping station*
+Winnie investigates, and Paul makes a move on her! ...*what happens in the pumping station, stays in the pumping station*
 
 We all return to the bonfire site ... more people are arriving for the big fire. Janet Flock (owner Candlelight Booksellers), and Corinne Whately (a seeker, owner of a clothes store)
 
