@@ -49,8 +49,8 @@ Winnie does a Quincy on the body ...
 
 * his hands had been bound and under the body is a cut zip-tie.
 * he wasn't dead when the leaves were stuffed in, and the anaphylaxis is evident
-* *Void:*  checking around; there are a series of glyphs carved in the trees, pointing a way?
-  * *Clue:*  Winnie checks the location, brand new backpack, containing more poison sumac
+* **Void:**  checking around; there are a series of glyphs carved in the trees, pointing a way?
+  * **Clue:**  Winnie checks the location, brand new backpack, containing more poison sumac
   * and there are even more runes pointing at the location
 
 Meanwhile Brad is talking to Petra Posey (high school senior).
@@ -80,8 +80,8 @@ Get Moonhowl to check out the body & zip-locs, and then track ... <br>
 She's leads us off to the other side of the cliff, where there are paths down to the quarry.
 Then off to the side undergrowth, she's found something bizarre<br>
 
-* *Void:*  a pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
-* *Clue:*  school football trophy, the plaque front of it has been broken off
+* **Void:**  a pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
+* **Clue:**  school football trophy, the plaque front of it has been broken off
 
 Meanwhile back at the pumping station ... <br>
 
@@ -100,7 +100,7 @@ Thomas talking about his football exploits, big of '95 ... Atsidi makes a fool o
 After a night of drinking, next morning ...
 
 Krystal found an envelope with a plectrum inside. <br>
-*Clue:*  It has a design on it, which matches a guitar being played by Madison **[Scarecrow Maven Move]**
+**Clue:**  It has a design on it, which matches a guitar being played by Madison **[Scarecrow Maven Move]**
 
 #### 21st July
 
@@ -116,12 +116,12 @@ We need Cozy Moves !!!
 
 ## All Void Clues so far
 
-* *Void:* [MoDO] Growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
-* *Void:* [MoDO] Purple goo leaking around the fishes eyes
-* *Void:* [MoDO] Crowned rat sat on top of a large pile of cardboard fish
-* *Void:* [MotWMM] Picture of the human-eyed whale
-* *Void:* [MotWMM] Sketch of a sailor being consumed by the human-eyed whale
-  * *Void:* [FM] The sketch relates directly to the scrimshaw
-* *Void:* [MRBC] A pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
-* *Void:* [MRBC] A a series of glyphs carved in the trees, pointing to a location
+* **Void:** [MoDO] Growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
+* **Void:** [MoDO] Purple goo leaking around the fishes eyes
+* **Void:** [MoDO] Crowned rat sat on top of a large pile of cardboard fish
+* **Void:** [MotWMM] Picture of the human-eyed whale
+* **Void:** [MotWMM] Sketch of a sailor being consumed by the human-eyed whale
+  * **Void:** [FM] The sketch relates directly to the scrimshaw
+* **Void:** [MRBC] A pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
+* **Void:** [MRBC] A a series of glyphs carved in the trees, pointing to a location
   
