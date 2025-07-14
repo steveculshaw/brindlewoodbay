@@ -85,7 +85,7 @@ Then off to the side undergrowth, she's found something bizarre<br>
 
 Meanwhile back at the pumping station ... <br>
 
-Winnie investigates, and Paul makes a move on her! ...*what happens in the pumping station, stays in the pumping station*
+Krystal investigates, and Paul makes a move on her! ...*what happens in the pumping station, stays in the pumping station*
 
 We all return to the bonfire site ... more people are arriving for the big fire. Janet Flock (owner Candlelight Booksellers), and Corinne Whately (a seeker, owner of a clothes store)
 
@@ -99,7 +99,7 @@ Thomas talking about his football exploits, big of '95 ... Atsidi makes a fool o
 
 After a night of drinking, next morning ...
 
-Winnie found an envelope with a plectrum inside. <br>
+Krystal found an envelope with a plectrum inside. <br>
 Clue:  It has a design on it, which matches a guitar being played by Madison **[Scarecrow Maven Move]**
 
 #### 21st July
