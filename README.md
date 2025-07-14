@@ -16,7 +16,7 @@ The exploits of the Monday Brindlewood Bay group ...
 
 ## Mysteries
 
-### The Mystery of Reunion (Homecoming) at Bonfire Cliff
+### The Mystery of Reunion (Homecoming) at Bonfire Cliff [MRBC]
 
 #### 14th July
 
@@ -49,8 +49,8 @@ Winnie does a Quincy on the body ...
 
 * his hands had been bound and under the body is a cut zip-tie.
 * he wasn't dead when the leaves were stuffed in, and the anaphylaxis is evident
-* [VOID] checking around; there are a series of glyphs carved in the trees, pointing a way?
-  * [CLUE] Winnie checks the location, brand new backpack, containing more poison sumac
+* Void:  checking around; there are a series of glyphs carved in the trees, pointing a way?
+  * Clue:  Winnie checks the location, brand new backpack, containing more poison sumac
   * and there are even more runes pointing at the location
 
 Meanwhile Brad is talking to Petra Posey (high school senior).
@@ -80,8 +80,8 @@ Get Moonhowl to check out the body & zip-locs, and then track ... <br>
 She's leads us off to the other side of the cliff, where there are paths down to the quarry.
 Then off to the side undergrowth, she's found something bizarre<br>
 
-* [VOID] bit pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
-* [CLUE] school football trophy, the plaque front of it has been broken off
+* Void:  a pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
+* Clue:  school football trophy, the plaque front of it has been broken off
 
 Meanwhile back at the pumping station ... <br>
 
@@ -93,7 +93,18 @@ Corinne says she had a bunch of older mannikins, but couple of weeks ago, there 
 
 **The bonfire gets lit**
 
-The BBH school song is starting up, around Billy the Bosun's exploits
+The BBH school song is starting up, around Billy the Bosun's exploits.
+
+Thomas talking about his football exploits, big of '95 ... Atsidi makes a fool of herself, attempting to chat up Thomas.
+
+After a night of drinking, next morning ...
+
+Winnie found an envelope with a plectrum inside. <br>
+Clue:  It has a design on it, which matches a guitar being played by Madison **[Scarecrow Maven Move]**
+
+#### 21st July
+
+We need Cozy Moves !!!
 
 ---
 
@@ -110,4 +121,7 @@ The BBH school song is starting up, around Billy the Bosun's exploits
 * Void: [MoDO] Crowned rat sat on top of a large pile of cardboard fish
 * Void: [MotWMM] Picture of the human-eyed whale
 * Void: [MotWMM] Sketch of a sailor being consumed by the human-eyed whale
-  * [FM] The sketch relates directly to the scrimshaw
+  * Void: [FM] The sketch relates directly to the scrimshaw
+* Void: [MRBC] A pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
+* Void: [MRBC] A a series of glyphs carved in the trees, pointing to a location
+  
