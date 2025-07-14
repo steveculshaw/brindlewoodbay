@@ -23,9 +23,9 @@ The exploits of the Monday Brindlewood Bay group ...
 Brindlewood Bay High (BBH) had an old tradition of going to Bonfire Cliff, an old quarry with a pool, and throwing a stone in, and making a wish.
 The quarry has some old rusty relics of the original industry.
 
-There's scream (female?) from up at the top of the cliff, near where the bonfires are lit.
+There's a scream (female?) from up at the top of the cliff, near where the bonfires are lit.
 
-We rush up, to find a woman, Ashley Hapsbury (Thomas's Wife), saying "He's dead".
+We rush up the pathway [Out of Breath], to find a woman, Ashley Hapsbury (Thomas's Wife, class of '97), saying "He's dead".
 In the bushes, lying dead is Mark Harrison (biology teacher at BBH, and member of the class of '95), with a mouth stuffed absolutely full of poison sumac.<br>
 
 Another guy turns up, Thomas Hapsbury (businessman & ex-jock)<br>
@@ -34,7 +34,7 @@ By the body was a big pile of bonfire wood that he's dropped. Atsidi calls it a 
 
 Krystal searches Mark's body; there is something in his pocket; a container of pills.
 
-Winnie spots an abandoned water station off the path. Going to investigate it, notices the door looks openable ... so she checks it out.<br>
+Winnie spots an abandoned shack; disused water station, off the path. Going to investigate it, notices the door looks openable ... so she checks it out.<br>
 Yuck, it stinks of sex and drugs .. but not sure about the rock & roll
 
 We know that the Hapsbury's live just down the cliff, in a big house. Been in the family for generations.
@@ -50,10 +50,22 @@ Winnie does a Quincy on the body ...
 * his hands had been bound and under the body is a cut zip-tie.
 * he wasn't dead when the leaves were stuffed in, and the anaphylaxis is evident
 * checking around; there are a series of glyphs carved in the trees, pointing a way?
-* Winnie checks the location, brand new backpack, containing more poison sumac
-* and even more runes pointing at the location
+  * Winnie checks the location, brand new backpack, containing more poison sumac
+  * and there are even more runes pointing at the location
 
-Meanwhile Brad is talking to Petra Posey (high school senior)
+Meanwhile Brad is talking to Petra Posey (high school senior).
+
+At the bonfire site, there are more people; Paul Ludlow (an engineer) and Carolyn Greenleaf (a busybody).
+
+Carolyn pesters me about the shenanigans going on up her, sinful behaviour ... [Bored witless]
+
+Krystal gets chatting with Petra. Mark was a "cool guy", and seems to have been well liked by the students. But Carolyn has a "stick up her arse"!
+
+Meanwhile Winnie blacks out and collapses!
+
+Detective Cooper turns up!
+
+Where do we know Carolyn from; she was a regular kid, Winnie was quite friendly with her ... at then at the end of 12, she found religion, and dived right in ... and hasn't come back up since.
 
 ---
 
