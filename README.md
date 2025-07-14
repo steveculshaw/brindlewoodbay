@@ -49,7 +49,7 @@ Winnie does a Quincy on the body ...
 
 * his hands had been bound and under the body is a cut zip-tie.
 * he wasn't dead when the leaves were stuffed in, and the anaphylaxis is evident
-* checking around; there are a series of glyphs carved in the trees, pointing a way?
+* [VOID] checking around; there are a series of glyphs carved in the trees, pointing a way?
   * [CLUE] Winnie checks the location, brand new backpack, containing more poison sumac
   * and there are even more runes pointing at the location
 
@@ -83,9 +83,17 @@ Then off to the side undergrowth, she's found something bizarre<br>
 * [VOID] bit pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
 * [CLUE] school football trophy, the plaque front of it has been broken off
 
-*Meanwhile back at the pumping station* ... <br>
+Meanwhile back at the pumping station ... <br>
 
 Winnie investigates ...*what happens in the pumping station, stays in the pumping station*
+
+We all return to the bonfire site ... more people are arriving for the big fire. Janet Flock (owner Candlelight Booksellers), and Corinne Whately (a seeker, owner of a clothes store)
+
+Corinne says she had a bunch of older mannikins, but couple of weeks ago, there was a break-in, and they were stolen.
+
+**The bonfire gets lit**
+
+The BBH school song is starting up, around Billy the Bosun's exploits
 
 ---
 
