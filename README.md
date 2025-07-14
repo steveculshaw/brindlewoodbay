@@ -25,7 +25,7 @@ The quarry has some old rusty relics of the original industry.
 
 There's a scream (female?) from up at the top of the cliff, near where the bonfires are lit.
 
-We rush up the pathway [Out of Breath], to find a woman, Ashley Hapsbury (Thomas's Wife, class of '97), saying "He's dead".
+We rush up the pathway [OUT OF BREATH], to find a woman, Ashley Hapsbury (Thomas's Wife, class of '97), saying "He's dead".
 In the bushes, lying dead is Mark Harrison (biology teacher at BBH, and member of the class of '95), with a mouth stuffed absolutely full of poison sumac.<br>
 
 Another guy turns up, Thomas Hapsbury (businessman & ex-jock)<br>
@@ -34,7 +34,7 @@ By the body was a big pile of bonfire wood that he's dropped. Atsidi calls it a 
 
 Krystal searches Mark's body; there is something in his pocket; a container of pills.
 
-Winnie spots an abandoned shack; disused water station, off the path. Going to investigate it, notices the door looks openable ... so she checks it out.<br>
+Winnie spots an abandoned shack off the path; disused water pumping station for the quarry. Goes in to investigate it, notices the door looks openable ... so she checks it out.<br>
 Yuck, it stinks of sex and drugs .. but not sure about the rock & roll
 
 We know that the Hapsbury's live just down the cliff, in a big house. Been in the family for generations.
@@ -50,22 +50,42 @@ Winnie does a Quincy on the body ...
 * his hands had been bound and under the body is a cut zip-tie.
 * he wasn't dead when the leaves were stuffed in, and the anaphylaxis is evident
 * checking around; there are a series of glyphs carved in the trees, pointing a way?
-  * Winnie checks the location, brand new backpack, containing more poison sumac
+  * [CLUE] Winnie checks the location, brand new backpack, containing more poison sumac
   * and there are even more runes pointing at the location
 
 Meanwhile Brad is talking to Petra Posey (high school senior).
 
-At the bonfire site, there are more people; Paul Ludlow (an engineer) and Carolyn Greenleaf (a busybody).
+At the bonfire site, there are more people; Paul Ludlow (an engineer, class of '97) and Carolyn Greenleaf (a busybody, class of '73).
 
-Carolyn pesters me about the shenanigans going on up her, sinful behaviour ... [Bored witless]
+Carolyn pesters me about the shenanigans going on up her, sinful behaviour ... [BORED WITLESS]
 
 Krystal gets chatting with Petra. Mark was a "cool guy", and seems to have been well liked by the students. But Carolyn has a "stick up her arse"!
 
 Meanwhile Winnie blacks out and collapses!
 
-Detective Cooper turns up!
+!!! Detective Cooper turns up !!!
 
-Where do we know Carolyn from; she was a regular kid, Winnie was quite friendly with her ... at then at the end of 12, she found religion, and dived right in ... and hasn't come back up since.
+Where do we know Carolyn from; she was a regular kid, Winnie was quite friendly with her ... at then at the end of 12, she found religion, and dived right in ... and hasn't come back up since!
+
+Krystal tries to talk to Paul; sadly it doesn't go well ... he's frighten and pulls back ... over the cliff edge!<br>
+He's fallen in the quarry pool.
+
+Krystal grabs Billy the Boson's Mate, a blow-up mascot of BBH, is uses it a flotation aid, and goes in to rescue Paul.<br>
+Paul, "I was only throwing a stone, maybe it helps remember the old days, but maybe not the dark things".<br>
+Moved back to BB a few years ago, after divorce. Works for the county.
+
+Looking down from the cliff top; reflection of the old crane, detritus scattered around the edges.
+
+Get Moonhowl to check out the body & zip-locs, and then track ... <br>
+She's leads us off to the other side of the cliff, where there are paths down to the quarry.
+Then off to the side undergrowth, she's found something bizarre<br>
+
+* [VOID] bit pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
+* [CLUE] school football trophy, the plaque front of it has been broken off
+
+*Meanwhile back at the pumping station* ... <br>
+
+Winnie investigates ...*what happens in the pumping station, stays in the pumping station*
 
 ---
 
