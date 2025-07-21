@@ -151,6 +151,8 @@ Meanwhile, arguing all the way, Krystal and Atsidi get the car, and recover a dr
 
 *Winnie's Crown of the Queen* ... an affair, tied up by a escapologist, then getting freed and having mad passionate sex
 
+**Bring along Detective Cooper, and reveal Ashley & Tom as the foul murderers of poor Mark Harrison**
+
 * **Clue:** Explicit text messages sent to Mark Harrison, setting up an assignation
 * **Clue:** Rucksack of poison sumac
 * **Clue:** A bottle of prescription medicine, in an unmarked bottle.
