@@ -119,11 +119,12 @@ It's a counter to fainting fits caused by a blood condition.
 
 Krystal heads off to the school to check up on the trophy, but she's distracted and fails to check the cabinet ... *and she's also got signed up to attending tomorrows music lessons to give a talk.*
 
-Next day Krystal wows the kids with her musical prowess
+Next day Krystal wows the kids with her musical prowess!
 
 Meanwhile Atsidi pokes around for copies of the schools year books; <br>
 **Clue** the 1995 one has couple of pages ripped out.<br>
-1992 newspaper clipping ... in the autumn, Sons of Freedom (separatists), camp in the wood outside BB, 6 day siege by federal agents, saw strange things, chanting lights even animal noises. And in the photograph, there's a younger Etienne Beauregard, being arrested or not is unclear.
+1992 newspaper clipping ... in the autumn, Sons of Freedom (separatists), camp in the wood outside BB, 6 day siege by federal agents, saw strange things, chanting lights even animal noises. <br>
+And in the photograph, there's a younger Etienne Beauregard, being arrested or not is unclear.
 
 Winnie checking the trophy case; a broken trophy of player of the year 1995, given to Thomas Hapsbury.
 
@@ -134,16 +135,32 @@ Hannah (Madison's wife) comes in ... the goth thing, all of that came out of Tom
 What about any other places of spirituality ... maybe talk to Janet Flock, and her bookshops section <br>
 
 Winnie checks out the library, for a copy of the year book, which confirms the people in the mystery.<br>
-But there is also a rather old set of newspaper cuttings; spring 1942, wreckage of a U-Boat came ashore, literally ripped apart, one survivor, who committed suicide by slamming head into wall.
-And over the back of a chair, **Clue:** A cardigan with black & grey smudges, smelling of woodsmoke ... could be one of Ashley's says the librarian.
+But there is also a rather old set of newspaper cuttings; spring 1942, wreckage of a U-Boat came ashore, literally ripped apart, one survivor, who committed suicide by slamming head into wall.<br>
+And over the back of a chair, **Clue:** A cardigan with black & grey smudges, smelling of woodsmoke ... could be one of Ashley's, says the librarian.
 
+That night, we decide to re-check the Bonfire Cliff area, to see if we can get confirmation of our thoughts.
 
-* **Clue:** A school football trophy, the plaque front of it has been broken off
+First, the pumping station; Moonhowl has picked up something ... a recent curfuffle has taken here, in one corner, is a mobile phone.<br>
+Belong to Ashley, got some photos of fashion shoot, computer screen from possible projects.<br>
+**Clue:** Explicit text messages sent to Mark Harrison, setting up an assignation.
+
+Then head towards the bonfire site ... a bit deeper into the woods, a little clearing with candles in a circle, a fairly fresh camp site, torn sleeping bags.<br>
+Barking of dogs, whistle sound, general direction of the Hapsbury house ... someone knows we're here!<br>
+Winnie distracts them, by getting into the lake.<br>
+Meanwhile, arguing all the way, Krystal and Atsidi get the car, and recover a dripping Winnie
+
+*Winnie's Crown of the Queen* ... an affair, tied up by a escapologist, then getting freed and having mad passionate sex
+
+* **Clue:** Explicit text messages sent to Mark Harrison, setting up an assignation
+* **Clue:** Rucksack of poison sumac
 * **Clue:** A bottle of prescription medicine, in an unmarked bottle.
+* **Clue:** The relatively recent carved tree glyphs
+* **Clue:** Astronomy reference to Million Trees star constellation
 * **Clue:** The 1995 year book has couple of pages ripped out
-* **Clue:** The plectrum has a design on it, which matches a guitar being played by Madison
-* **Clue:** The carved tree glyphs
-* **Clue:** A cardigan with black & grey smudges, smelling of woodsmoke
+* **Clue:** Old newspaper, 1994, playing cults
+* **Clue:** The plectrum has a design on it, which matches a guitar being played by Madison ... *Tom was playing cults*
+* **Clue:** A school football trophy, the plaque front of it has been broken off
+* **Clue:** Ashley's cardigan with black & grey smudges, smelling of woodsmoke
 
 ---
 

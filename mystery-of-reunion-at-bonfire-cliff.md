@@ -1,2 +1,1 @@
-### The Mystery of Reunion (Homecoming) at Bonfire Cliff  [level ?]
-
+### The Mystery of Reunion (Homecoming) at Bonfire Cliff  [level 7]
