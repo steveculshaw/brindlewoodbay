@@ -57,7 +57,7 @@ Meanwhile Brad is talking to Petra Posey (high school senior).
 
 At the bonfire site, there are more people; Paul Ludlow (an engineer, class of '97) and Carolyn Greenleaf (a busybody, class of '73).
 
-Carolyn pesters me about the shenanigans going on up her, sinful behaviour ... [BORED WITLESS]
+Carolyn pesters me about the shenanigans going on up her, sinful behaviour ... *[BORED WITLESS]*
 
 Krystal gets chatting with Petra. Mark was a "cool guy", and seems to have been well liked by the students. But Carolyn has a "stick up her arse"!
 
@@ -100,11 +100,21 @@ Thomas talking about his football exploits, big of '95 ... Atsidi makes a fool o
 After a night of drinking, next morning ...
 
 Krystal found an envelope with a plectrum inside. <br>
-**Clue:**  It has a design on it, which matches a guitar being played by Madison **[Scarecrow Maven Move]**
+**Clue:** The plectrum has a design on it, which matches a guitar being played by Madison *[Scarecrow]*
+
+Also we have ...<br>
+**Clue:** A bottle of prescription medicine, in an unmarked bottle
 
 #### 21st July
 
-We need Cozy Moves !!!
+Krystal gets a visit from Alf *[Scarecrow]* ... an envelope is pushed under the door, containing a treasure map<br>
+*[Fox Mulder]* ... converting tree glyphs to a **Clue:**
+
+Krystal & Winnie have a Cozy Moment ... find an interesting article on an arrangement of stars, known as the Million Trees, linked to teen age culture<br>
+Winnie pops round to find Atsidi and Moonhowl messing around ... find an old newspaper, 1994, with photo of figures in heavy black robes running away, with headline "Children at Brindlewood Bay playing at cults"
+Atsidi walks Winnie back to her house to work on her ankle, and fit Moonhowl for a doggie cardigan
+
+Meanwhile Krystal is checking the pill at the pharmacy ...
 
 ---
 
@@ -122,6 +132,5 @@ We need Cozy Moves !!!
 * **Void:** [MotWMM] Picture of the human-eyed whale
 * **Void:** [MotWMM] Sketch of a sailor being consumed by the human-eyed whale
   * **Void:** [FM] The sketch relates directly to the scrimshaw
-* **Void:** [MRBC] A pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
-* **Void:** [MRBC] A a series of glyphs carved in the trees, pointing to a location
-  
+* **Void:** [MRBC] A pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile
+* **Void:** [MRBC] A series of glyphs carved in the trees, pointing to a location
