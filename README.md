@@ -87,7 +87,7 @@ Meanwhile back at the pumping station ... <br>
 
 Krystal investigates, and Paul makes a move on her! ...*what happens in the pumping station, stays in the pumping station*
 
-We all return to the bonfire site ... more people are arriving for the big fire. Janet Flock (owner Candlelight Booksellers), and Corinne Whately (a seeker, owner of a clothes store)
+We all return to the bonfire site ... more people are arriving for the big fire. Janet Flock (owner Candlelight Booksellers), and Corinne Whately (a seeker, owner of a clothes store).
 
 Corinne says she had a bunch of older mannikins, but couple of weeks ago, there was a break-in, and they were stolen.
 
@@ -103,25 +103,49 @@ Krystal found an envelope with a plectrum inside. <br>
 **Clue:** The plectrum has a design on it, which matches a guitar being played by Madison *[Scarecrow]*
 
 Also we have ...<br>
-**Clue:** A bottle of prescription medicine, in an unmarked bottle
+**Clue:** A bottle of prescription medicine, in an unmarked bottle.
 
 #### 21st July
 
 Krystal gets a visit from Alf *[Scarecrow]* ... an envelope is pushed under the door, containing a treasure map<br>
 *[Fox Mulder]* ... converting tree glyphs to a **Clue:**
 
-Krystal & Winnie have a Cozy Moment ... find an interesting article on an arrangement of stars, known as the Million Trees, linked to teen age culture<br>
-Winnie pops round to find Atsidi and Moonhowl messing around ... find an old newspaper, 1994, with photo of figures in heavy black robes running away, with headline "Children at Brindlewood Bay playing at cults"
-Atsidi walks Winnie back to her house to work on her ankle, and fit Moonhowl for a doggie cardigan
+[Cozy Move] Krystal & Winnie ... find an interesting article on an arrangement of stars, known as the Million Trees, linked to teen age culture<br>
+[Cozy Move] Winnie pops round to find Atsidi and Moonhowl messing around ... find an old newspaper, 1994, with photo of figures in heavy black robes running away, with headline "Children at Brindlewood Bay playing at cults"
+[Cozy Move] Atsidi walks Winnie back to her house to work on her ankle, and fit Moonhowl for a doggie cardigan.
 
 Meanwhile Krystal is checking the pill at the pharmacy ... she gets a bit [Flustered] by their questioning. <br>
-It's a counter to fainting fits caused by a blood condition
+It's a counter to fainting fits caused by a blood condition.
+
+Krystal heads off to the school to check up on the trophy, but she's distracted and fails to check the cabinet ... *and she's also got signed up to attending tomorrows music lessons to give a talk.*
+
+Next day Krystal wows the kids with her musical prowess
+
+Meanwhile Atsidi pokes around for copies of the schools year books; <br>
+**Clue** the 1995 one has couple of pages ripped out.<br>
+1992 newspaper clipping ... in the autumn, Sons of Freedom (separatists), camp in the wood outside BB, 6 day siege by federal agents, saw strange things, chanting lights even animal noises. And in the photograph, there's a younger Etienne Beauregard, being arrested or not is unclear.
+
+Winnie checking the trophy case; a broken trophy of player of the year 1995, given to Thomas Hapsbury.
+
+Krystal gets kids talking about hearing chanting up in the woods.
+
+Krystal and Atsidi head up to the Hapsbury house ... the maid opens the door.<br>
+Hannah (Madison's wife) comes in ... the goth thing, all of that came out of Tom.<br>
+What about any other places of spirituality ... maybe talk to Janet Flock, and her bookshops section <br>
+
+Winnie checks out the library, for a copy of the year book
+
+* **Clue:**
+* **Clue:** the 1995 year book has couple of pages ripped out
+* **Clue:** The plectrum has a design on it, which matches a guitar being played by Madison
 
 ---
 
 ### <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-dad-overboard.html">The Mystery of Dad Overboard</a>
 
 ### <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-whaling-museum-murder.html">The Mystery of the Whaling Museum Murder</a>
+
+### <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-reunion-at-bonfire-cliff.html">The Mystery of Reunion (Homecoming) at Bonfire Cliff</a>
 
 ---
 
