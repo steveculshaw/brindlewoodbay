@@ -81,7 +81,7 @@ She's leads us off to the other side of the cliff, where there are paths down to
 Then off to the side undergrowth, she's found something bizarre<br>
 
 * **Void:**  a pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile <br>
-* **Clue:**  school football trophy, the plaque front of it has been broken off
+* **Clue:**  a school football trophy, the plaque front of it has been broken off
 
 Meanwhile back at the pumping station ... <br>
 
@@ -133,11 +133,17 @@ Krystal and Atsidi head up to the Hapsbury house ... the maid opens the door.<br
 Hannah (Madison's wife) comes in ... the goth thing, all of that came out of Tom.<br>
 What about any other places of spirituality ... maybe talk to Janet Flock, and her bookshops section <br>
 
-Winnie checks out the library, for a copy of the year book
+Winnie checks out the library, for a copy of the year book, which confirms the people in the mystery.<br>
+But there is also a rather old set of newspaper cuttings; spring 1942, wreckage of a U-Boat came ashore, literally ripped apart, one survivor, who committed suicide by slamming head into wall.
+And over the back of a chair, **Clue:** A cardigan with black & grey smudges, smelling of woodsmoke ... could be one of Ashley's says the librarian.
 
-* **Clue:**
-* **Clue:** the 1995 year book has couple of pages ripped out
+
+* **Clue:** A school football trophy, the plaque front of it has been broken off
+* **Clue:** A bottle of prescription medicine, in an unmarked bottle.
+* **Clue:** The 1995 year book has couple of pages ripped out
 * **Clue:** The plectrum has a design on it, which matches a guitar being played by Madison
+* **Clue:** The carved tree glyphs
+* **Clue:** A cardigan with black & grey smudges, smelling of woodsmoke
 
 ---
 
