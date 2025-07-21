@@ -114,7 +114,8 @@ Krystal & Winnie have a Cozy Moment ... find an interesting article on an arrang
 Winnie pops round to find Atsidi and Moonhowl messing around ... find an old newspaper, 1994, with photo of figures in heavy black robes running away, with headline "Children at Brindlewood Bay playing at cults"
 Atsidi walks Winnie back to her house to work on her ankle, and fit Moonhowl for a doggie cardigan
 
-Meanwhile Krystal is checking the pill at the pharmacy ...
+Meanwhile Krystal is checking the pill at the pharmacy ... she gets a bit [Flustered] by their questioning. <br>
+It's a counter to fainting fits caused by a blood condition
 
 ---
 
