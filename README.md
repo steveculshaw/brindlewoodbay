@@ -104,7 +104,7 @@ The maven's reunite and head home.
 &nbsp;&nbsp; - and in her prime, Mrs. Carfax was known to be a fixer and source for the Boston mob.
 
 *[Seance Move]* We look to a seance with the spirit of Latatia ... *along with a drink of mescal in memory of our celebrations after her & Atsidi's joint closure of the crystal meth lab.*<br>
-&nbsp;&nbsp; - we hear the voice of Latatia saying *"What's in the pomegranate was in the juice!"*
+&nbsp;&nbsp; - we hear the voice of Latatia saying *"What's in the pomegranate, was in the juice!"*
 
 
 #### 18th August
