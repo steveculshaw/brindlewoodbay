@@ -21,9 +21,31 @@ The exploits of the Monday Brindlewood Bay group ...
 
 ## Mysteries
 
-### The Mystery of ??? [?]
+### The Mystery of the Long Dark Teatime of the Soulless [MLDTS]
 
 #### 28th July
+
+A little girl presses a pomegranate into Krystal's hand
+
+Atsidi contacted by Latatia Dawes; a journalist crystal meth lab, mescal drinking through the night.
+Retired, now doing travel reviews.
+
+Newly setup B&B and teahouse "Snowdrop House", by the Coles.
+
+The teahouse has a cosy, old fashioned atmosphere, but still has an air of what it used to be; the old Stockton farmhouse. High above the fireplace is an old man trap, fixed to the wall.<br>
+
+Young guy, Percy, is the waiter in a 1930's bellhop uniform, and asks for orders ... brownies, eclairs, cinnamon bun and scones
+
+Latatia takes a sip of her drink, starts coughing, and then collapses!<br>
+A young lady on adjacent table, gets up, closes and says "You can't do that, not now!"<br>
+Winnie tries to save her, but she's gone.
+
+Old woman; elderly frail, layers of moth eaten knitting sat at a corner table.
+Guy in the corner on his mobile, talking about "shit loads of potential ... bulldoze it, make a fortune ... condo's"
+Young woman, 
+
+
+* Clue: Her pink, fizzy drink smells of pomegranate!
 
 ---
 
@@ -47,3 +69,5 @@ The exploits of the Monday Brindlewood Bay group ...
 * **Void:** [MRBC] A pile of shop mannikin limbs, with a mannikin head on top; with a broadening smile
 * **Void:** [MRBC] A series of glyphs carved in the trees, pointing to a location
 * **Void:** [?] A trio of beautiful, stylish women wearing the exact same outfit, sipping tea. They look up at you and speak in unison: "Embrace the Void" (this was a vision/dream)
+* **Void:** [MLDTS] *[Hint]* Milcah has a dream of a sigil, similar to one seen recently on a tree, except this one is on a rock and underground
+
