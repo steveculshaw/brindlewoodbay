@@ -1,4 +1,5 @@
-### The Mystery of the Whaling Museum Murder  [level 7]
+
+### The Mystery of the Whaling Museum Murder [MotWMM] - [level 7]
 
 #### 23rd June
 
