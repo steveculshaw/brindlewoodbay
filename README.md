@@ -101,9 +101,10 @@ The "modern room" has handcuffs around bedstead, and also in the "lacy room".
 The maven's reunite and head home.
 
 *[Cozy Move]* Checking up on the disappearances near the Stockton farmhouse; yeap, in the 1990's, 60's, 30's, 1890's.<br>
-And in her prime, Mrs. Carfax was known to be a fixer and source for the Boston mob.
+&nbsp;&nbsp; - and in her prime, Mrs. Carfax was known to be a fixer and source for the Boston mob.
 
-*[Seance Move]* We look to a seance with the spirit of Latatia ... *along with a drink of mescal in memory of our celebrations after her & Atsidi's joint closure of the crystal meth lab.*<br>&nbsp;&nbsp; - we hear the voice of Latatia saying *"What's in the pomegranate was in the juice!"*
+*[Seance Move]* We look to a seance with the spirit of Latatia ... *along with a drink of mescal in memory of our celebrations after her & Atsidi's joint closure of the crystal meth lab.*<br>
+&nbsp;&nbsp; - we hear the voice of Latatia saying *"What's in the pomegranate was in the juice!"*
 
 
 #### 18th August
