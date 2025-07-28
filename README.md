@@ -42,8 +42,15 @@ Winnie tries to save her, but she's gone.
 
 Old woman; elderly frail, layers of moth eaten knitting sat at a corner table.
 Guy in the corner on his mobile, talking about "shit loads of potential ... bulldoze it, make a fortune ... condo's"
-Young woman, 
+Young woman, here to make a podcast with Latatia. 
 
+Percy comes in with order; "oh my lord!", drops plates and starts trying to call the police.
+
+Eva Cole, immaculate apron, comes out the kitchen, sees Latatia ... and turns back into the kitchen.
+
+Tall gentleman, Phoenix Cole, strides out, looking to take charge ... calls police, professionally giving address & details.
+
+Detective Sam Cooper
 
 * Clue: Her pink, fizzy drink smells of pomegranate!
 
