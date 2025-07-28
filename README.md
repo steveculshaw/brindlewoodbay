@@ -72,11 +72,15 @@ Krystal heads to the "Phantasia in lace", one of the themed bedrooms; Stockton s
 Her room is at the back, and it's a tip ... she's been living here since it opened.
 
 **[Gold Crown Mystery]** Remembering the taped item under the desk drawer in "Amanda Delacourt - Behind the Black Curtain", Milcah finds some doctored floor plans for the house. They seem to have an attempt to conceal an unexplained void, just of the office.<br>
-Looking for a way to open a secret door to the void; on the top shelf is one, "Breath of the Vagrant Void", pulling it, it clicks, and the fireplace opens ...<br>
-The chamber has a series of high backed chairs, in a circle around a rug with the symbol we've seen before carved in the trees.
 
 * **Void:** [MLDTS] On the desk is a photo, which seems to have a group of chanting cultists, in a circle of torches, with a struggling figure in their midst"
 
+Looking for a way to open a secret door to the void; on the top shelf is one, "Breath of the Vagrant Void", pulling it, it clicks, and the fireplace opens ...<br>
+There is a partially burn letter in it; expressing concern about a "cult", addressed to (to Sheriff Dalrymple) , handwritten ... but the signature is burnt.<br>
+The chamber has a series of high backed chairs, in a circle around a rug with the symbol we've seen before carved in the trees.<br>
+There is moaning from the fireplace, so she decides to try and do a seance, and contact the dead ... *"Is there anybody there"*.
+
+Meanwhile Winnie is critiquing the coroner in their checking of the body, and takes the opportunity to check Latatia's handbag for her notebook. There is a shorthand section at the end ... *but sadly the coroner takes it for evidence*.
 
 ---
 
