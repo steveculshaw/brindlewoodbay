@@ -27,7 +27,7 @@ The exploits of the Monday Brindlewood Bay group ...
 
 A little girl presses a pomegranate into Krystal's hand
 
-Atsidi contacted by Latatia Dawes; a journalist crystal meth lab, mescal drinking through the night.
+Atsidi contacted by Latatia Dawes (a journalist, the bust of crystal meth lab, mescal drinking through the night).<br>
 Retired, now doing travel reviews.
 
 Newly setup B&B and teahouse "Snowdrop House", by the Coles.
@@ -41,14 +41,24 @@ A young lady on adjacent table, gets up, closes and says "You can't do that, not
 Winnie tries to save her, but she's gone.
 
 Old woman; elderly frail, layers of moth eaten knitting sat at a corner table.
-Guy in the corner on his mobile, talking about "shit loads of potential ... bulldoze it, make a fortune ... condo's"
-Young woman, here to make a podcast with Latatia. 
+Guy, Damian, is in the corner on his mobile, talking about *"shit loads of potential ... bulldoze it, make a fortune ... condo's"*
+Young woman, here to try and make a podcast with Latatia.
 
-Percy comes in with order; "oh my lord!", drops plates and starts trying to call the police.
-
-Eva Cole, immaculate apron, comes out the kitchen, sees Latatia ... and turns back into the kitchen.
-
+Percy comes in with order; *"oh my lord!"*, drops plates and starts trying to call the police.<br>
+Eva Cole, immaculate apron, comes out the kitchen, sees Latatia ... and turns back into the kitchen.<br>
 Tall gentleman, Phoenix Cole, strides out, looking to take charge ... calls police, professionally giving address & details.
+
+Krystal gets hold of the bottle of pomegranate fizz that Latatia drank.<br>
+Winnie put a plastic bag over the glass to preserve it.
+
+Percy Underwood returns wearing a checker jacket, holding a Meerschaum pipe ... *"ah ha, the game is afoot"* ... **where & why does he get these costumes**
+
+Deputy Brad Anderson arrives. His uniform is straining, slightly too small ... he's been working out.
+
+Gruff guy, Abraham Stockton, red plaid shirt, comes in from the hall. Used to own the farm, been in the family, right to the time of the Deep Reaver. 
+
+Krystal interview Stockton; talks about the farm, great deal of animus towards the Coles, you should search the house throughout, *"there's a set of drawings, showing how it used to be, somewhere in the house, likely in the office"*
+
 
 Detective Sam Cooper
 
