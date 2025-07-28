@@ -65,7 +65,7 @@ He mentions that over the years people have disappeared from the house.
 
 Milcah heads for "Eva's Office", whilst she's being interviewed by Deputy Anderson. Her notes show her as a shrewd and merciless business woman.
 
-* Clue: Her pink, fizzy drink smells of pomegranate!
+* **Clue:** Her pink, fizzy drink smells of pomegranate!
 
 Mrs.Carfax invites Atsidi upstairs for a game of checkers.<br>
 Krystal heads to the "Phantasia in lace", one of the themed bedrooms; Stockton says it was the master bedroom.<br>
@@ -81,6 +81,24 @@ The chamber has a series of high backed chairs, in a circle around a rug with th
 There is moaning from the fireplace, so she decides to try and do a seance, and contact the dead ... *"Is there anybody there"*.
 
 Meanwhile Winnie is critiquing the coroner in their checking of the body, and takes the opportunity to check Latatia's handbag for her notebook. There is a shorthand section at the end ... *but sadly the coroner takes it for evidence*.
+
+Krystal is in the bedroom with Stockton, when Eva bursts in, a heated argument ensues, and Krystal listens for any titbits of information;<br>
+Stockton's comment "The protection of that crone doesn't last forever; it ends when she does" peeks her interest, and trying to get more information, she catches a blow *[Duffed Up]*. Percy is now in wrestling referee outfit.
+
+Atsidi blocks Eva and the deputy, leaving Krystal to have her way with Abe ... offering sex on the bed.<br>
+
+Krystal and Abe end up in Eva & Phoenix's bedroom; discovery of their hidden stash of porn magazines, she uses them to break Abe's will, and has her way with him.
+
+Meanwhile Milcah is doing further checking in the office, and maps; there is indication of further voids in the ground below the house.
+
+Krystal gets him to spill the jen on "the crone", amongst other things! ... *it was Carfax, she was in with the Boston families, and it was made clear that they must sell the farm. You should also take a look around outside*. Now he's stuck living in a trailer.<br>
+Goes back to the "Victorian dark room" to check it out ...
+
+* **Void:** [MLDTS] Room is a bit dark, and there's a large shaggy dog in the corner ... *turn the light, and it's not there*
+
+The "modern room" has handcuffs around bedstead, and also in the "lacy room"
+
+The maven's reunite in the main room.
 
 ---
 
