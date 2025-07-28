@@ -96,9 +96,17 @@ Goes back to the "Victorian dark room" to check it out ...
 
 * **Void:** [MLDTS] Room is a bit dark, and there's a large shaggy dog in the corner ... *turn the light, and it's not there*
 
-The "modern room" has handcuffs around bedstead, and also in the "lacy room"
+The "modern room" has handcuffs around bedstead, and also in the "lacy room".
 
-The maven's reunite in the main room.
+The maven's reunite and head home.
+
+*[Cozy Move]* Checking up on the disappearances near the Stockton farmhouse; yeap, in the 1990's, 60's, 30's, 1890's.<br>
+And in her prime, Mrs. Carfax was known to be a fixer and source for the Boston mob.
+
+*[Seance Move]* We look to a seance with the spirit of Latatia ... *along with a drink of mescal in memory of our celebrations after her & Atsidi's joint closure of the crystal meth lab.*<br>&nbsp;&nbsp; - we hear the voice of Latatia saying *"What's in the pomegranate was in the juice!"*
+
+
+#### 18th August
 
 ---
 
