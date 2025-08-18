@@ -46,11 +46,12 @@ Young woman, here to try and make a podcast with Latatia.
 
 Percy comes in with order; *"oh my lord!"*, drops plates and starts trying to call the police.<br>
 Eva Cole, immaculate apron, comes out the kitchen, sees Latatia ... and turns back into the kitchen.<br>
-Tall gentleman, Phoenix Cole, strides out, looking to take charge ... calls police, professionally giving address & details.
+Tall gentleman, Phoenix Cole, strides out, looking to take charge ... calls police, professionally giving address & details.<br>
+They have a marriage of convenience.
 
 The kitchen has an old range, hung above old corn dolls, and carved wooden signs of the turning of the years.
 
-Krystal gets hold of the bottle of pomegranate fizz that Latatia drank.<br>
+Krystal gets hold of the bottle of pomegranate fizz that Latatia drank<br>
 Winnie put a plastic bag over the glass to preserve it.
 
 Percy Underwood returns wearing a checker jacket, holding a Meerschaum pipe ... *"ah ha, the game is afoot"* ... **where & why does he get these costumes**
@@ -65,7 +66,7 @@ He mentions that over the years people have disappeared from the house.
 
 Milcah heads for "Eva's Office", whilst she's being interviewed by Deputy Anderson. Her notes show her as a shrewd and merciless business woman.
 
-* **Clue:** Her pink, fizzy drink smells of pomegranate!
+* **Clue:** Her pink, fizzy drink smells of pomegranate ... poisoned!
 
 Mrs.Carfax invites Atsidi upstairs for a game of checkers.<br>
 Krystal heads to the "Phantasia in lace", one of the themed bedrooms; Stockton says it was the master bedroom.<br>
@@ -85,11 +86,12 @@ Meanwhile Winnie is critiquing the coroner in their checking of the body, and ta
 Krystal is in the bedroom with Stockton, when Eva bursts in, a heated argument ensues, and Krystal listens for any titbits of information;<br>
 Stockton's comment "The protection of that crone doesn't last forever; it ends when she does" peeks her interest, and trying to get more information, she catches a blow *[Duffed Up]*. Percy is now in wrestling referee outfit.
 
-Atsidi blocks Eva and the deputy, leaving Krystal to have her way with Abe ... offering sex on the bed.<br>
+Atsidi blocks Eva and the deputy, leaving Krystal to have her way with Abe ... *offering sex on the bed*.<br>
 
 Krystal and Abe end up in Eva & Phoenix's bedroom; discovery of their hidden stash of porn magazines, she uses them to break Abe's will, and has her way with him.
 
-Meanwhile Milcah is doing further checking in the office, and maps; there is indication of further voids in the ground below the house.
+Meanwhile Milcah is doing further checking in the office, and maps; there is indication of further voids in the ground below the house.<br>
+Finds a secret door, to a chamber ... a meeting room for the **Midwives of the Fragrant Void**
 
 Krystal gets him to spill the jen on "the crone", amongst other things! ... *it was Carfax, she was in with the Boston families, and it was made clear that they must sell the farm. You should also take a look around outside*. Now he's stuck living in a trailer.<br>
 Goes back to the "Victorian dark room" to check it out ...
@@ -106,8 +108,20 @@ The maven's reunite and head home.
 *[Seance Move]* We look to a seance with the spirit of Latatia ... *along with a drink of mescal in memory of our celebrations after her & Atsidi's joint closure of the crystal meth lab.*<br>
 &nbsp;&nbsp; - we hear the voice of Latatia saying *"What's in the pomegranate, was in the juice!"*
 
-
 #### 18th August
+
+Krystal is handed a note ...
+
+Damien Swallow (property developer) eyeing up the area for re-development.<br>
+Lara Sanchez (podcaster) was after an interview with Latatia.<br>
+Brett Anderson (police deputy) is the officer on the scene.<br>
+Percy Underwood (waiter & quick change artist) ... who is after Brett.
+
+And a little girl comes in, and offers Krystal a mining lamp, says "envelope wasn't from me", and runs off ...
+
+Vision of a woman stirs the water in a bowl, while staring at the moon ... runs a knife across her palm, and drops of blood fall into the bowl, turning red to black.<br>
+The envelope contains a blank card ... and Krystal feels a sharp pain in her chest ... and acquires the condition **"Black Mark"**
+
 
 ---
 
