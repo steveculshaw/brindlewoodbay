@@ -14,6 +14,7 @@ The exploits of the Monday Brindlewood Bay group ...
 
 * Amanda Delacourt and the Pickled Purser
 * Amanda Delacourt - Behind the Black Curtain
+* Amanda Delacourt and the Freaky Cave
 
 ## Town Archive
 
@@ -64,7 +65,8 @@ Won't say why he sold the farm ... **unfortunately, as Latatia has bought the fa
 Krystal interview Stockton; talks about the farm, great deal of animus towards the Coles, you should search the house throughout, *"there's a set of drawings, showing how it used to be, somewhere in the house, likely in the office"*<br>
 He mentions that over the years people have disappeared from the house.
 
-Milcah heads for "Eva's Office", whilst she's being interviewed by Deputy Anderson. Her notes show her as a shrewd and merciless business woman.
+Milcah heads for "Eva's Office", whilst she's being interviewed by Deputy Anderson.<br>
+Her notes show her as a shrewd and merciless business woman.
 
 * **Clue:** Her pink, fizzy drink smells of pomegranate ... poisoned!
 
@@ -122,6 +124,34 @@ And a little girl comes in, and offers Krystal a mining lamp, says "envelope was
 Vision of a woman stirs the water in a bowl, while staring at the moon ... runs a knife across her palm, and drops of blood fall into the bowl, turning red to black.<br>
 The envelope contains a blank card ... and Krystal feels a sharp pain in her chest ... and acquires the condition **"Black Mark"**
 
+Milcah mentions there were caves below the secret room, with wind blowing from below ... and Abraham mentioned there are some caves in the woods.
+
+Cut through the pomegranate, which Krystal got handed; **some of the pips look dodgy !!!**
+
+Under the Stockton farmhouse, there is a labyrinth of caves ...
+
+Deep within there is a larger cave ... laid out on the floor, there are a variety of ritual artifacts and drawing.
+
+Winnie remembers the story in "Amanda Delacourt and the Freaky Cave", where symbols were used as a trap ... *and gets an automatic 12*
+
+Ritual paraphernalia around a pentagram (with dried blood in it), and six robes with a strange design on the back - a blob with lots (& lots) of hands of reaching out of it.<br>
+Evidence of **Midwives of the Fragrant Void**!
+
+Atsidi gets Moonhowl to scent each of the robes for future detection.
+
+Krystal rests and remembers a bad event ... the card has changed to all white, and embossed in the corner is a symbol of a bow & arrow
+
+Atsidi heads to the police station to get any details on the cause of Latatia's death ... sadly Sam is not available, and not getting information.<br>
+Sheriff Dalrymple gets the nod about seeing the notebook and the autopsy report.<br>
+This interaction sadly has Atsidi worried that she's not got it.
+
+* **Clue:** Notebooks details, and confirm poisoned drink
+
+Winnie & Krystal have a cozy moment. And notice a bit of marijuana seed.
+
+Winnie internet's the symbol ... **"Apollo"**
+
+So we believe it was Eva, using Percy to administer to Latatia, so she couldn't divulge information to Lara the podcaster ... *Theorise and get a 12*
 
 ---
 
@@ -146,5 +176,4 @@ The envelope contains a blank card ... and Krystal feels a sharp pain in her che
 * **Void:** [MRBC] A series of glyphs carved in the trees, pointing to a location
 * **Void:** [?] A trio of beautiful, stylish women wearing the exact same outfit, sipping tea. They look up at you and speak in unison: "Embrace the Void" (this was a vision/dream)
 * **Void:** [MLDTS] *[Hint]* Milcah has a dream of a sigil, similar to one seen recently on a tree, except this one is on a rock and underground
-* **Void:** [MLDTS] On the desk is a photo, which seems to have a group of chanting cultists, in a circle of torches, with a struggling figure in their midst"
-
+* **Void:** [MLDTS] On the desk is a photo, which seems to have a group of chanting cultists, in a circle of torches, with a struggling figure in their midst
