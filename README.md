@@ -45,7 +45,7 @@ The scene opens on the top floor of the Candlelight Booksellers shop ... cosiest
 Janet Flock comes in with a local paper, with an article about Cyrus Creole of Mucky Point Lighthouse died having fallen from the lantern room.<br>
 Constable Alvin Deschain says it was only an accident.
 
-As we leave, a young girl presses a small bottle into Krystal's hand ... water and seaweed?
+* **CLUE** As we leave, a young girl presses a small bottle into Krystal's hand ... water and seaweed ... becomes slippery & waxy
 
 Winnie the robe has a label sewn in, **"Caroline Greenleaf"** ... known from the Mystery of Reunion (Homecoming) at Bonfire Cliff [MRBC]
 
@@ -66,7 +66,7 @@ Pokes her about Alvin ... *urgent police call, and she dashes off*<br>
 Next day head over to Mucky Point ...<br>
 
 * Deschain's Gas
-* Golden Ball road house
+* Golden Bull road house
   * originally a lodge for a group of spiritualists in the 20's, with a ouija board
   * Tara Hill, tavern keeper
     * not from the area ... was on holiday and found love
@@ -80,8 +80,11 @@ Next day head over to Mucky Point ...<br>
         * George, his brother, runs the bait & tackle shop
     * Stephen (assistant lighthouse keeper)
 * Mucky Point Museum
+  * run by Eleanor Hurley (historian & curator)
 * Codswallop Bait & Tackle
 * Lighthouse and keepers shack
+  * Cyrus Creole (dead lighthouse keeper)
+  * Stephen Blair (assistant lighthouse keeper)
 
 Winnie heads to gas station ...<br>
 Marvin Deschain is behind counter. He doesn't reckon the death was an accident.<br>
@@ -119,7 +122,7 @@ There a couple of beds, wardrobe, desk and a dining table.<br>
 As she's poking around, a shadowy figure sneaks in behind her and strike her down ...<br>
 **CROWN OF VOID**<br>
 
-* **CLUE** Find a note, from Cyrus, explaining why he's going to dock Stephen's pay ... for impertinence.<br>
+* **CLUE** Find a note, from Cyrus, explaining why he's going to dock Stephen's pay ... for impertinence
 
 At the top of the lighthouse, Stephen offers to go first ... get **"NERVY"**<br>
 Krystal arrives, and prepares for abseiling ...<br>
@@ -142,13 +145,74 @@ And helps with delivering an **"octobaby"** ...
 
 Moonhowl runs after the thief ... Atsidi catches up with her, round the corner to a rocky shore, barking at the sea ...<br>
 Moonhowl has the condition **"Sea Struck"** [like Genevieve has]<br>
-And see disappearing into the water, Krystal's baby, taken by a grey skinned humanoid with tusks ...<br>
+And see it disappearing into the water, Krystal's baby, taken by a grey skinned humanoid with tusks ...<br>
 
 Winnie interrogates Stephen, after he says *"Oh no, not again"*.<br>
 "Mermaids and selkies climb out of the sea on the rocks near here. And I've seen one".
 
-* **CLUE** Searching and find Cyrus's chess set, with carved pieces resembling the people of Mucky Point.<br>
-The pawns are a golden retriever, one piece is missing ... the black queen, the black king looks a bit like Alvin
+* **CLUE** Searching and find Cyrus's chess set, with carved pieces resembling the people of Mucky Point
+
+The pawns are a golden retriever (the mayor), one piece is missing ... the black queen, and the black king looks a bit like Alvin.
+
+#### 22nd September
+
+* **CLUE** A child runs up and gives Krystal a "gonk", with 6 or 8 arms
+
+Head back to the Golden Bull Roadhouse. Get served by Sandy & Tara Hill.<br>
+Get accosted by a drunk at the bar (Benny "Tug" Williams) ... he's going on about having seen "things"<br>
+Reckons Eleanor Hurley (historian woman) had one ... and it went into the sea
+
+* **CLUE** there was a hidden pregnancy with Eleanor Hurley
+
+After refreshing drinks, go to the museum to quiz Eleanor about her pregnancy ...<br>
+Yes, she got pregnant by Cyrus Creole; the baby got adopted ... she flees in distress<br>
+
+Eleanor's flees to her house ... Moonhowl tracks her Atsidi
+Next door house has front door ajar ... safe entry ... and commence search<br>
+House looks abandoned (vase of dead flowers on the table).<br>
+Upstairs bedroom, made up but unused bed.<br>
+Mug & small plate by the sink.<br>
+
+* **CLUE** on one of the stairs is a wax/grease spread over it
+
+* **CLUE** In a drawer in bedroom, envelope with Social Security documents, forgeries in the name of "Stephen Blair" (assistant lighthouse keeper)
+
+Winnie hears some chanting ... "King Poseidon"<br>
+She sees Thurgood Codswallop weaving along, singing a dissonant song ..."beware things from the deep", "creatures, many legged, many arms".<br>
+
+Down by the seashore, Winnie continues to look for the source of the chanting ...<br>
+... what's that, something right down on the tide line ... ...<br>
+
+* **CLUE**  It's a decayed female human skeleton amongst the rocks; jaw missing, bad of skull bashed in
+
+Winnie hunts for bones ... and finds one, along with a shiny white metal necklace, with gems (blue surrounded by clear)
+
+Return to Brindlewood for the night, after a nervy drive back ...<br>
+Get the ladies into the sweat tent to warm them up<br>
+Working on the table, with an old newspaper to protect the surface ...
+... not silver, patterning more reminiscent of wedding ring, than a necklace
+
+* **CLUE** an article about selling the lighthouse ... young assistant keeper was on the side of the developers, Damian Swallow, and a local lighthouse keeper and a historian were dead against.
+
+The cottages are owned by Marvin Deschain; Stephen took the adjacent cottage
+
+Next day
+
+Atsidi enters the lighthouse ... weird sensation of falling! <br>
+Search the place with Moonhowl ... small cranny at the bottom of stairs
+
+* **CLUE** a bottle nearly full of liquid, bourbon, with something in the bottom ... a wedding ring ... which matches the necklace style
+
+Who was the female skeleton ... Atsidi goes through detective XXX to get access to missing persons database
+
+* **CLUE** old record of a middle aged woman, Janet Martens (ne. Whately), reported missing by her children. Her parents came from Brindlewood.
+
+We use the podcast people to put out the story ... <br>
+... and we get a 12+, so a person involved in the dark conspiracy of Brindlewood Bay also reveals themselves to the Maven's
+
+#### 22nd September
+
+Atsidi takes the increase ability ... Composure to +2
 
 ---
 
@@ -169,3 +233,5 @@ The pawns are a golden retriever, one piece is missing ... the black queen, the 
 * **Void:** [MMSM] Hands on the rocks, that were not there
 * **Void:** [MMSM] Krystal giving birth to an octobaby
 * **Void:** [MMSM] People ranting and raving about the coming
+* **Void:** [MMSM] 1967 summer of love, hippy commune sprung up outside Brindlewood, George Maplethorpe (never found), Wyman Dalrymple lead march to commune, violence broke out, no-one knows what happens to the hippies
+
