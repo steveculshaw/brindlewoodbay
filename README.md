@@ -56,7 +56,12 @@ Atsidi spots ... Ms. MacAllister has a piece of the regalia of **Midwives of the
 That night we sneak into the Midwife cave ... Winnie staying on guard outside<br>
 Moonhowl is disturbed, generally looking around nervously ...<br>
 
-The cave has been cleared since our last visit, but Krystal finds a pamphlet "Children of Persephone - The Million Handed Lord"
+The cave has been cleared since our last visit, but Krystal finds a pamphlet "Children of Persephone - The Million Handed Lord".<br>
+The pamphlet has a picture of a monster, and says "Conformance will come, the Million Handed Lord welcomes you.", and has more pages to be checked ...<br>
+
+Settle down in Winnie's loft, with a coco, and check the rest of the pamphlet ... images of girls with their jewellery removed, tattoos erased
+
+* **Clue:** it will rise from the sea ... when the ritual comes, the chosen will ascend
 
 
 
