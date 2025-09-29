@@ -112,13 +112,23 @@ Who raised it ... a Capt.Stern?<br>
 
 Head to the museum to poke through the "restricted" archives ...<br>
 So what is there on the Deep Reaver, the U-Boat, the hippies who were driven away ...<br>
-Checking the archives ... 
+Checking the archives ...
 
-* there is a red leather manifest, detailing an ancient obelisk (1884), pulled from the bed of the bay, lifted taken ashore by Capt.Stern, who wheeled it away on a wagon.<br>
+* there is a red leather manifest, detailing an ancient obelisk (1884), pulled from the bed of the bay, lifted taken ashore by Capt.Stern, who wheeled it away on a "great wagon", so big, but not a *"Cleopatra's Needle"*.<br>
   * *NOTE: lighthouse built in 1899*
   * *NOTE: Deep Reaver returned in 1877*
 * a note of the survivors; Ed Coffin, Balam Stockton, Varnie Greenleaf, Pierre Beauregard, John Hapsbury, Liam MacAllister, Victor Longmore, Valentine Hill (whose daughter married into the Stern family)<br>
 * a local's comment that the obelisk wasn't taken to town, it was taken up the road to the old Stockton farm
+
+Check out Stockton's Farm ... nothing found
+
+Check out the Lighthouse (Stephen gives us the keys) ...
+
+Atsidi & Winnie go in to search the place ... <br>
+Atsidi gone ... Krystal finds evidence of the obelisk in the centre of the stairs, and a cat headed humanoid (one of the three servants)<br>
+Luckily the gold LP disk blocks it, and she gets outside<br>
+Winnie goes in, climbing up the lighthouse, checking the top of it; nicely cut, a strange greenish stone. Near the bottom of it, there is a symbol like an "A" (alpha), and at the top an "Ω" (omega)<br>
+
 
 
 ## All Void Clues so far
