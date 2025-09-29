@@ -44,7 +44,7 @@ The exploits of the Monday Brindlewood Bay group ...
 
 We need to get details on the plans of the Midnight Void ...
 
-* Where ... the lute tree?
+* Where ... the obelisk? the lute tree?
 * When ... ?
 * How ... ?
 
@@ -125,10 +125,13 @@ Check out Stockton's Farm ... nothing found
 Check out the Lighthouse (Stephen gives us the keys) ...
 
 Atsidi & Winnie go in to search the place ... <br>
-Atsidi gone ... Krystal finds evidence of the obelisk in the centre of the stairs, and a cat headed humanoid (one of the three servants)<br>
+Krystal heads in and Atsidi has gone!!!<br>
+Finds evidence of the obelisk in the centre of the stairs, and a cat headed humanoid (one of the three servants)<br>
 Luckily the gold LP disk blocks it, and she gets outside<br>
 Winnie goes in, climbing up the lighthouse, checking the top of it; nicely cut, a strange greenish stone. Near the bottom of it, there is a symbol like an "A" (alpha), and at the top an "Ω" (omega)<br>
 
+Atsidi finds herself in a sunlit corn maze ... hearing the sound of hounds in the distance!!!<br>
+Using classic left hand on the wall, head out into the maze ... and exit out in the backroom of the Golden Bull tavern.<br>
 
 
 ## All Void Clues so far
