@@ -49,7 +49,7 @@ We need to get details on the plans of the Midnight Void ...
 * How
 
 Brett Anderson (Police Deputy) turns up on doorstep ... seems the DA wants to see us.<br>
-Takes us to the DA's office, where we meet Jenna MacAllister ... I believe you were in Mucky Point recently.<br>
+Takes us to the DA's office, where we meet Jenna MacAllister (Assistant DA) ... I believe you were in Mucky Point recently.<br>
 She grills us about the murder at Mucky Point.<br>
 Atsidi spots ... Ms. MacAllister has a piece of the regalia of **Midwives of the Fragrant Void**.<br>
 
@@ -65,6 +65,42 @@ Settle down in Winnie's loft, with a coco, and check the rest of the pamphlet ..
 
 * **CLUE?** a child runs up and gives Krystal a "gonk", with 6 or 8 arms
 
+Krystal meets Alf ... but this time he's not shrouded in shadow ... it's Abraham Stockton (farmer) <br>
+Talk to the marine biologist (Dr. Tara Banerjee), and if we can, rescue Stephen (assistant lighthouse keeper<br>
+
+From the loft we see ... a circle of 8 lamp-lit boats appear (same as the robes we found). The rowers stand up, seem to be singing, but we can't hear them.<br>
+
+* **CLUE:** circle of boats
+
+Krystal goes out see if she can hear them ... they are praising the mother goddesses; Hecate, Athena, etc. ... and they have protection.<br>
+And they have protection" ... *a handsome well muscled flaming man flies up towards her ... Megara's Tempter*<br>
+The pamphlet mentions various "protectors", including flame boy.
+
+Winnie pulls a fast one and gets Stephen Blair out of jail, completely flustering Alvin.<br>
+He confirms they (the Midwives) are trying to summon this Million Handed Lord.
+Says that Eudora 'Dorrie' Coffin (*Chair of the Brindlewood Bay Lunch Club*) is one of the Midwives.<br>
+Etienne Beauregard was also a survivor.
+
+So the list so far is ...
+
+* Eudora 'Dorrie' Coffin (Chair of the Brindlewood Bay Lunch Club)
+* Jenna MacAllister (Assistant DA)
+* Etienne Beauregard (Fishmarket owner)
+* one of the Stockton's
+
+Stephen catches sight of the gonk ... "argh, that's not a gonk!!!"<br>
+The gonk is made of wax, not plastic ... it's malleable?<br>
+All of them have this as a "sign", it's like a siamese twin, and it identifies a person as "one of them"<br>
+
+* **CLUE:** the gonk is revealed to be a sign
+
+Go to check the trees on Bonfire Cliff. Nothing changed, however further checking towards the quarry, on the side pointing towards shore, is a marple tree ...
+
+* **CLUE:** maple tree, with a few man-made holes in it, spaced like a flute, oozing blood
+
+Before leaving, take photo's to confirm if anyone returns to "here" ... oh, yeap, the tree and holes look like a flute.<br>
+
+Go to contact Dr. Banerjee at the Community College ...<br>
 
 
 ## All Void Clues so far
