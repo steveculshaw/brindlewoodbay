@@ -44,9 +44,9 @@ The exploits of the Monday Brindlewood Bay group ...
 
 We need to get details on the plans of the Midnight Void ...
 
-* Where
-* When
-* How
+* Where ... the lute tree?
+* When ... ?
+* How ... ?
 
 Brett Anderson (Police Deputy) turns up on doorstep ... seems the DA wants to see us.<br>
 Takes us to the DA's office, where we meet Jenna MacAllister (Assistant DA) ... I believe you were in Mucky Point recently.<br>
@@ -77,7 +77,7 @@ And they have protection" ... *a handsome well muscled flaming man flies up towa
 The pamphlet mentions various "protectors", including flame boy.
 
 Winnie pulls a fast one and gets Stephen Blair out of jail, completely flustering Alvin.<br>
-He confirms they (the Midwives) are trying to summon this Million Handed Lord.
+He confirms they (the Midwives) are trying to summon this Million Handed Lord.<br>
 Says that Eudora 'Dorrie' Coffin (*Chair of the Brindlewood Bay Lunch Club*) is one of the Midwives.<br>
 Etienne Beauregard was also a survivor.
 
@@ -101,6 +101,24 @@ Go to check the trees on Bonfire Cliff. Nothing changed, however further checkin
 Before leaving, take photo's to confirm if anyone returns to "here" ... oh, yeap, the tree and holes look like a flute.<br>
 
 Go to contact Dr. Banerjee at the Community College ...<br>
+
+Krystal quizzes Dr.Banerjee about the marine changes. <br>
+It's not only the marine life, look out for the grey dog in the woods.<br>
+... what's different?<br>
+Dogs are only mean to have four legs!<br>
+Check out a museum in Boston, where there are notes on a investigation into a ship arrived in the late 1870's, with a manifest mentioning an obelisk, which had been raised the seabed at Brindlewood.<br>
+But it's missing! <br>
+Who raised it ... a Capt.Stern?<br>
+
+Head to the museum to poke through the "restricted" archives ...<br>
+So what is there on the Deep Reaver, the U-Boat, the hippies who were driven away ...<br>
+Checking the archives ... 
+
+* there is a red leather manifest, detailing an ancient obelisk (1884), pulled from the bed of the bay, lifted taken ashore by Capt.Stern, who wheeled it away on a wagon.<br>
+  * *NOTE: lighthouse built in 1899*
+  * *NOTE: Deep Reaver returned in 1877*
+* a note of the survivors; Ed Coffin, Balam Stockton, Varnie Greenleaf, Pierre Beauregard, John Hapsbury, Liam MacAllister, Victor Longmore, Valentine Hill (whose daughter married into the Stern family)<br>
+* a local's comment that the obelisk wasn't taken to town, it was taken up the road to the old Stockton farm
 
 
 ## All Void Clues so far
