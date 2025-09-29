@@ -61,7 +61,9 @@ The pamphlet has a picture of a monster, and says "Conformance will come, the Mi
 
 Settle down in Winnie's loft, with a coco, and check the rest of the pamphlet ... images of girls with their jewellery removed, tattoos erased
 
-* **Clue:** it will rise from the sea ... when the ritual comes, the chosen will ascend
+* **CLUE:** it will rise from the sea ... when the ritual comes, the chosen will ascend
+
+* **CLUE?** a child runs up and gives Krystal a "gonk", with 6 or 8 arms
 
 
 
