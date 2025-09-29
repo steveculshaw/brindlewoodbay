@@ -34,13 +34,20 @@ The exploits of the Monday Brindlewood Bay group ...
 
 * <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-long-dark-teatime-of-the-soulless.html">Mystery of the Long Dark Teatime of the Soulless</a>
 
-* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/the-mystery-of-a-murder-so-mucky.html">The Mystery of a Murder So Mucky</a>
+* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-a-murder-so-mucky.html">The Mystery of a Murder So Mucky</a>
 
 ## Current Mystery
 
 ### The Mystery ???  [???]
 
 #### 29th September
+
+Brett Anderson (Police Deputy) turns up on doorstep ... seems the DA wants to see us.<br>
+Takes us to the DA's office, where we meet Jenna MacAllister ... I believe you were in Mucky Point recently.<br>
+She grills us about the murder at Mucky Point.<br>
+Atsidi spots ... Ms. MacAllister has a piece of the regalia of **Midwives of the Fragrant Void**.<br>
+
+
 
 
 ## All Void Clues so far
