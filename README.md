@@ -38,15 +38,25 @@ The exploits of the Monday Brindlewood Bay group ...
 
 ## Current Mystery
 
-### The Mystery ???  [???]
+### The Million Handed Lord  [MHL] ... [Level 6 Void]
 
 #### 29th September
+
+We need to get details on the plans of the Midnight Void ...
+
+* Where
+* When
+* How
 
 Brett Anderson (Police Deputy) turns up on doorstep ... seems the DA wants to see us.<br>
 Takes us to the DA's office, where we meet Jenna MacAllister ... I believe you were in Mucky Point recently.<br>
 She grills us about the murder at Mucky Point.<br>
 Atsidi spots ... Ms. MacAllister has a piece of the regalia of **Midwives of the Fragrant Void**.<br>
 
+That night we sneak into the Midwife cave ... Winnie staying on guard outside<br>
+Moonhowl is disturbed, generally looking around nervously ...<br>
+
+The cave has been cleared since our last visit, but Krystal finds a pamphlet "Children of Persephone - The Million Handed Lord"
 
 
 
