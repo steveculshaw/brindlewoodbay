@@ -151,6 +151,9 @@ Winnie goes to give the arm to the local constable, and Krystal, Atsidi & Moonho
 He wanted take away the arm ... <br>
 Atsidi contacts Sam Cooper about the arm ...
 
+Winnie drops off, and has a dream ...
+
+* **CLUE:** long dark grasping hands in a hall way, which take & take until their is nothing left of her
 
 ## All Clues
 
@@ -160,7 +163,8 @@ Atsidi contacts Sam Cooper about the arm ...
 * **CLUE:** the gonk is revealed to be a sign ... dead, underdeveloped siamese twin
 * **CLUE:** the manifest of the obelisk being raised
 * **CLUE:** the pamphlet pointing to the Many Handed Lord, and it will rise from the sea ... when the ritual comes, the chosen will ascend
-
+* **CLUE:** long dark grasping hands in a hall way, which take & take until their is nothing left of her
+* 
 ## All Void Clues so far
 
 * **Void:** [MoDO] Growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
