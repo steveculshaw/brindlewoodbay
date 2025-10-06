@@ -162,6 +162,7 @@ Later that night, Krystal is taking a moment to look at the stars, when Abe turn
 
 Checking the diary with the old heating to show hidden text, the three days (Fri/Sat/Sun) end with the final summoning of IT !!!
 
+The grand finale with sound blasting system, helicopters buzzing, police flashing blue lights ... the ritual of Midwives of the Fragrant Void is a non-event !!!
 
 ## All Clues
 
