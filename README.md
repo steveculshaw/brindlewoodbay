@@ -145,7 +145,12 @@ We sit drowning our sorrows in the Golden Bull ... when Benny rolls in, mutterin
 Winnie and Atsidi head to the inn door ... and Moonhowl runs off with the grey dog.<br>
 Track her to the shore, dash into the spray to save her ... **[Cold & Wet]**
 
-Meanwhile Krystal & Winnie do some searching ... and find a human arm left by the grey dog!
+Meanwhile Krystal & Winnie do some searching ... and find a human arm (female/adolescent) left by the grey dog!<br>
+Put a stake in the ground to mark the location.<br>
+Winnie goes to give the arm to the local constable, and Krystal, Atsidi & Moonhowl head back to the Golden Bull for food, drink & warmth<br>
+He wanted take away the arm ... <br>
+
+
 
 ## All Clues
 
