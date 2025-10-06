@@ -128,6 +128,16 @@ Winnie drops off, and has a dream ...
 
 * **CLUE:** long dark grasping hands in a hall way, which take & take until their is nothing left of her
 
+We decide to hold a ouija board session on the arm ... whose was the arm ... "My name is Kari. It was horrible. I was in Miss Greenleaf's."<br>
+So we head out to work on her ... by scaring with masked figures ... just like in "Amanda Delacourt - When Satan Slumbers"<br>
+She opens the door ... screams, and turns to run ... but we catch her<br>
+
+Winnie is left in the house alone, as Krystal & Atsidi try to catch her as she runs off.<br>
+Krystal is a dead-eye with her catapult, knocking her out.<br>
+Searching Winnie finds Caroline Greenleaf's diary, about a week in the future, there are 3 days blanked out ...<br>
+Krystal frisks the unconscious woman ... but the police arrive! Brett Anderson & Matt Evers<br>
+Winnie is ignored, but sadly Krystal fluffs it badly ...<br>
+
 ## All Clues
 
 * **CLUE:** an animal with more limbs than it should have ... the grey dog
@@ -167,6 +177,7 @@ Winnie drops off, and has a dream ...
 * Amanda Delacourt - Behind the Black Curtain
 * Amanda Delacourt and The Freaky Cave
 * Amanda Delacourt and The Bouncing Vicar
+* Amanda Delacourt - When Satan Slumbers
 
 ## Town Archive
 
