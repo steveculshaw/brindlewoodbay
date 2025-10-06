@@ -149,7 +149,7 @@ Meanwhile Krystal & Winnie do some searching ... and find a human arm (female/ad
 Put a stake in the ground to mark the location.<br>
 Winnie goes to give the arm to the local constable, and Krystal, Atsidi & Moonhowl head back to the Golden Bull for food, drink & warmth<br>
 He wanted take away the arm ... <br>
-
+Atsidi contacts Sam Cooper about the arm ...
 
 
 ## All Clues
