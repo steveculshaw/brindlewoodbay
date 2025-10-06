@@ -134,17 +134,26 @@ She opens the door ... screams, and turns to run ... but we catch her<br>
 
 Winnie is left in the house alone, as Krystal & Atsidi try to catch her as she runs off.<br>
 Krystal is a dead-eye with her catapult, knocking her out.<br>
-Searching Winnie finds Caroline Greenleaf's diary, about a week in the future, there are 3 days blanked out ...<br>
+Searching Winnie finds Caroline Greenleaf's diary ...<br>
+
+* **CLUE:** diary has in about a week in the future, there are 3 days blanked out
+
 Krystal frisks the unconscious woman ... but the police arrive! Brett Anderson & Matt Evers<br>
 Winnie is ignored, but sadly Krystal fluffs it badly ...<br>
 
 The neighbour turns up saying we attacked her ... and then trades fisticuffs with Krystal<br>
 
-Krystal & Atsidi both end up "Under Suspicion"<br>"
+Krystal (in cell 3) & Atsidi both end up "Under Suspicion"<br>"
 
 Whilst in the clear, Winnie does a thorough search, and finds ...
 
 * **CLUE:** a folded up piece of paper ... unfolded its a series of dance steps
+
+She turns round and there is a cat-headed man, who touches her ... and she finds herself in "a sunlit corn maze" ...<br>
+And goes through a door into a dark empty house ... the Stockton farm house ... and there something else luring here!<br>
+The office window is unlocked, so she slips out and away.<br>
+
+
 
 ## All Clues
 
@@ -155,6 +164,9 @@ Whilst in the clear, Winnie does a thorough search, and finds ...
 * **CLUE:** the manifest of the obelisk being raised
 * **CLUE:** the pamphlet pointing to the Many Handed Lord, and it will rise from the sea ... when the ritual comes, the chosen will ascend
 * **CLUE:** long dark grasping hands in a hall way, which take & take until their is nothing left of her
+* **CLUE:** a folded up piece of paper ... unfolded its a series of dance steps
+* **CLUE:** diary has in about a week in the future, there are 3 days blanked out
+
 
 ## All Void Clues so far
 
