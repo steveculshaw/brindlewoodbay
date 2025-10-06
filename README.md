@@ -92,7 +92,7 @@ Stephen catches sight of the gonk ... "argh, that's not a gonk!!!"<br>
 The gonk is made of wax, not plastic ... it's malleable?<br>
 All of them have this as a "sign", it's like a siamese twin, and it identifies a person as "one of them"<br>
 
-* **CLUE:** the gonk is revealed to be a sign ... underdeveloped siamese twin
+* **CLUE:** the gonk is revealed to be a sign ... dead, underdeveloped siamese twin
 
 Go to check the trees on Bonfire Cliff. Nothing changed, however further checking towards the quarry, on the side pointing towards shore, is a marple tree ...
 
@@ -139,6 +139,17 @@ Atsidi finds herself in a sunlit corn maze ... hearing the sound of hounds in th
 Using classic left hand on the wall, head out into the maze ... and exit out in the backroom of the Golden Bull tavern.<br>
 
 #### 6th October
+
+We sit drowning our sorrows in the Golden Bull ... when Benny rolls in
+
+## All Clues
+
+* **CLUE:** an animal with more limbs than it should have ... the grey dog
+* **CLUE:** a circle of 8 boats
+* **CLUE:** a maple tree, with a few man-made holes in it, spaced like a flute, oozing blood
+* **CLUE:** the gonk is revealed to be a sign ... dead, underdeveloped siamese twin
+* **CLUE:** the manifest of the obelisk being raised
+* **CLUE:** the pamphlet pointing to the Many Handed Lord, and it will rise from the sea ... when the ritual comes, the chosen will ascend
 
 ## All Void Clues so far
 
