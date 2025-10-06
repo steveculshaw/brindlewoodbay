@@ -160,6 +160,7 @@ Krystal blags her way out of the cell, by offering to do a performance at the po
 
 Later that night, Krystal is taking a moment to look at the stars, when Abe turns up ... yeah, the diary is the key ... and he disappears off ...
 
+Checking the diary with the old heating to show hidden text, the three days (Fri/Sat/Sun) end with the final summoning of IT !!!
 
 
 ## All Clues
