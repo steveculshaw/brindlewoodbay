@@ -119,6 +119,9 @@ Winnie and Atsidi head to the inn door ... and Moonhowl runs off with the grey d
 Track her to the shore, dash into the spray to save her ... **[Cold & Wet]**
 
 Meanwhile Krystal & Winnie do some searching ... and find a human arm (female/adolescent) left by the grey dog!<br>
+
+* **CLUE:** a human arm (female/adolescent)
+
 Put a stake in the ground to mark the location.<br>
 Winnie goes to give the arm to the local constable, and Krystal, Atsidi & Moonhowl head back to the Golden Bull for food, drink & warmth<br>
 He wanted take away the arm ... <br>
@@ -157,6 +160,7 @@ The office window is unlocked, so she slips out and away.<br>
 
 ## All Clues
 
+* **CLUE:** diary has in about a week in the future, there are 3 days blanked out
 * **CLUE:** an animal with more limbs than it should have ... the grey dog
 * **CLUE:** a circle of 8 boats
 * **CLUE:** a maple tree, with a few man-made holes in it, spaced like a flute, oozing blood
@@ -165,8 +169,7 @@ The office window is unlocked, so she slips out and away.<br>
 * **CLUE:** the pamphlet pointing to the Many Handed Lord, and it will rise from the sea ... when the ritual comes, the chosen will ascend
 * **CLUE:** long dark grasping hands in a hall way, which take & take until their is nothing left of her
 * **CLUE:** a folded up piece of paper ... unfolded its a series of dance steps
-* **CLUE:** diary has in about a week in the future, there are 3 days blanked out
-
+* **CLUE:** a human arm (female/adolescent)
 
 ## All Void Clues so far
 
