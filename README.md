@@ -18,8 +18,8 @@ The exploits of the Monday Brindlewood Bay group ...
 We need to get details on the plans of the Midnight Void ...
 
 * Where ... the obelisk? the lute tree?
-* When ... ?
-* How ... ?
+* When ... 3 day window in a weeks time
+* How ... dance steps
 
 Brett Anderson (Police Deputy) turns up on doorstep ... seems the DA wants to see us.<br>
 Takes us to the DA's office, where we meet Jenna MacAllister (Assistant DA) ... I believe you were in Mucky Point recently.<br>
@@ -156,19 +156,23 @@ She turns round and there is a cat-headed man, who touches her ... and she finds
 And goes through a door into a dark empty house ... the Stockton farm house ... and there something else luring here!<br>
 The office window is unlocked, so she slips out and away.<br>
 
+Krystal blags her way out of the cell, by offering to do a performance at the policeman's charity ball.<br>
+
+Later that night, Krystal is taking a moment to look at the stars, when Abe turns up ... yeah, the diary is the key ... and he disappears off ...
+
 
 
 ## All Clues
 
 * **CLUE:** diary has in about a week in the future, there are 3 days blanked out
 * **CLUE:** an animal with more limbs than it should have ... the grey dog
-* **CLUE:** a circle of 8 boats
+* **CLUE:** a circle of lamp-lit 8 boats
 * **CLUE:** a maple tree, with a few man-made holes in it, spaced like a flute, oozing blood
 * **CLUE:** the gonk is revealed to be a sign ... dead, underdeveloped siamese twin
 * **CLUE:** the manifest of the obelisk being raised
 * **CLUE:** the pamphlet pointing to the Many Handed Lord, and it will rise from the sea ... when the ritual comes, the chosen will ascend
 * **CLUE:** long dark grasping hands in a hall way, which take & take until their is nothing left of her
-* **CLUE:** a folded up piece of paper ... unfolded its a series of dance steps
+* **CLUE:** a folded up piece of paper ... unfolded it's a series of dance steps
 * **CLUE:** a human arm (female/adolescent)
 
 ## All Void Clues so far
