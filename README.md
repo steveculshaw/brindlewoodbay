@@ -9,33 +9,6 @@ The exploits of the Monday Brindlewood Bay group ...
 * Milcah Grey         *(Neil)*
 * Atsidi Redbird      *(Steve)*
 
-## Persona
-
-* Sam Cooper, local detective
-
-## Amanda Delacourt novels
-
-* Amanda Delacourt and the Pickled Purser
-* Amanda Delacourt - Behind the Black Curtain
-* Amanda Delacourt and The Freaky Cave
-* Amanda Delacourt and The Bouncing Vicar
-
-## Town Archive
-
-* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/town-archives.html">The Archive</a>
-
-## Previous Mysteries
-
-* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-dad-overboard.html">The Mystery of Dad Overboard</a>
-
-* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-whaling-museum-murder.html">The Mystery of the Whaling Museum Murder</a>
-
-* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-reunion-at-bonfire-cliff.html">The Mystery of Reunion (Homecoming) at Bonfire Cliff</a>
-
-* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-long-dark-teatime-of-the-soulless.html">Mystery of the Long Dark Teatime of the Soulless</a>
-
-* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-a-murder-so-mucky.html">The Mystery of a Murder So Mucky</a>
-
 ## Current Mystery
 
 ### The Million Handed Lord  [MHL] ... [Level 6 Void]
@@ -164,7 +137,7 @@ Winnie drops off, and has a dream ...
 * **CLUE:** the manifest of the obelisk being raised
 * **CLUE:** the pamphlet pointing to the Many Handed Lord, and it will rise from the sea ... when the ritual comes, the chosen will ascend
 * **CLUE:** long dark grasping hands in a hall way, which take & take until their is nothing left of her
-* 
+
 ## All Void Clues so far
 
 * **Void:** [MoDO] Growling repetitive noise, not machinery ... coming from grills in the floor ... it's chanting !
@@ -183,3 +156,31 @@ Winnie drops off, and has a dream ...
 * **Void:** [MMSM] Krystal giving birth to an octobaby
 * **Void:** [MMSM] People ranting and raving about the coming
 * **Void:** [MMSM] 1967 summer of love, hippy commune sprung up outside Brindlewood, George Maplethorpe (never found), Wyman Dalrymple lead march to commune, violence broke out, no-one knows what happens to the hippies
+
+## Persona
+
+* Sam Cooper, local detective
+
+## Amanda Delacourt novels
+
+* Amanda Delacourt and the Pickled Purser
+* Amanda Delacourt - Behind the Black Curtain
+* Amanda Delacourt and The Freaky Cave
+* Amanda Delacourt and The Bouncing Vicar
+
+## Town Archive
+
+* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/town-archives.html">The Archive</a>
+
+## Previous Mysteries
+
+* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-dad-overboard.html">The Mystery of Dad Overboard</a>
+
+* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-whaling-museum-murder.html">The Mystery of the Whaling Museum Murder</a>
+
+* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-reunion-at-bonfire-cliff.html">The Mystery of Reunion (Homecoming) at Bonfire Cliff</a>
+
+* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-the-long-dark-teatime-of-the-soulless.html">Mystery of the Long Dark Teatime of the Soulless</a>
+
+* <a target="_blank" href="https://steveculshaw.github.io/brindlewoodbay/mystery-of-a-murder-so-mucky.html">The Mystery of a Murder So Mucky</a>
+
