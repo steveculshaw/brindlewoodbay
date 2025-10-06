@@ -138,6 +138,14 @@ Searching Winnie finds Caroline Greenleaf's diary, about a week in the future, t
 Krystal frisks the unconscious woman ... but the police arrive! Brett Anderson & Matt Evers<br>
 Winnie is ignored, but sadly Krystal fluffs it badly ...<br>
 
+The neighbour turns up saying we attacked her ... and then trades fisticuffs with Krystal<br>
+
+Krystal & Atsidi both end up "Under Suspicion"<br>"
+
+Whilst in the clear, Winnie does a thorough search, and finds ...
+
+* **CLUE:** a folded up piece of paper ... unfolded its a series of dance steps
+
 ## All Clues
 
 * **CLUE:** an animal with more limbs than it should have ... the grey dog
