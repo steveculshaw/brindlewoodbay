@@ -140,7 +140,12 @@ Using classic left hand on the wall, head out into the maze ... and exit out in 
 
 #### 6th October
 
-We sit drowning our sorrows in the Golden Bull ... when Benny rolls in
+We sit drowning our sorrows in the Golden Bull ... when Benny rolls in, muttering about the grey dog outside
+
+Winnie and Atsidi head to the inn door ... and Moonhowl runs off with the grey dog.<br>
+Track her to the shore, dash into the spray to save her ... **[Cold & Wet]**
+
+Meanwhile Krystal & Winnie do some searching ... and find a human arm left by the grey dog!
 
 ## All Clues
 
